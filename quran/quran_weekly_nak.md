@@ -1,7 +1,7 @@
 # Quran Weekly - Nouman Ali Khan ([youtube](https://www.youtube.com/playlist?list=PLFP6-6Ao4FMm5FnIT9QvstEmhWNugJlNO))
 
 
-### 30: Al-'Asr: 
+### [30: Al-'Asr](https://www.youtube.com/watch?v=9JL09VjJQWE): 
 * time is the biggest asset you have
   * the biggest lost we have is time, so respect time
   * keep yourself productive, free time destroys most people

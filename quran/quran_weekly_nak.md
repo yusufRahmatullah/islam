@@ -1,5 +1,5 @@
-# Quran Weekly, Reminders from Juz (1-30) - Nouman Ali Khan
-source: [youtube](https://www.youtube.com/playlist?list=PLFP6-6Ao4FMm5FnIT9QvstEmhWNugJlNO)
+# Quran Weekly, Reminders from Juz (1-30) - Nouman Ali Khan [(youtube)](https://www.youtube.com/playlist?list=PLFP6-6Ao4FMm5FnIT9QvstEmhWNugJlNO)
+
 
 ### 30: Al-'Asr: 
 * time is the biggest asset you have

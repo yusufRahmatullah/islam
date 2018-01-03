@@ -1,4 +1,4 @@
-# Quran Weekly, Reminders from Juz (1-30) - Nouman Ali Khan [(youtube)](https://www.youtube.com/playlist?list=PLFP6-6Ao4FMm5FnIT9QvstEmhWNugJlNO)
+# Quran Weekly - Nouman Ali Khan ([youtube](https://www.youtube.com/playlist?list=PLFP6-6Ao4FMm5FnIT9QvstEmhWNugJlNO))
 
 
 ### 30: Al-'Asr: 

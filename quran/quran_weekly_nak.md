@@ -26,6 +26,15 @@
 * do not overestimate the burden that Allah has put on you in terms of responsibility
 * do not underestimate the weight of sin
 
+### [04](https://www.youtube.com/watch?v=h2kwFI7bKi0&t=8s&index=4&list=PLFP6-6Ao4FMm5FnIT9QvstEmhWNugJlNO): https://quran.com/3/92
+* How to Attain Goodness from Allah
+* imagine you are in a sea or dessert, and you want to reach a safe land (goodness) to survive
+* you have to spend things that you love (stuff that you really want yourself)
+  * giving shadaqah
+  * spend on relatives, neighbors
+* Allah knows really well anything you spend,
+  * so keep it as a secret, only between you and Allah
+
 ### [30](https://www.youtube.com/watch?v=9JL09VjJQWE): [Al-'Asr](https://quran.com/103)
 * time is the biggest asset you have
   * the biggest lost we have is time, so respect time

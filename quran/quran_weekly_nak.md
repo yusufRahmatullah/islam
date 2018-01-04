@@ -17,7 +17,7 @@
 * Do you worship Ramadan or Allah?
 * He remains the bigger priority even after Ramadhan
 
-### [03](https://www.youtube.com/watch?v=wFsYnwI6zEA&list=PLFP6-6Ao4FMm5FnIT9QvstEmhWNugJlNO&index=3&t=2s): [[Al-Baqarah:286](https://quran.com/2/286)
+### [03](https://www.youtube.com/watch?v=wFsYnwI6zEA&list=PLFP6-6Ao4FMm5FnIT9QvstEmhWNugJlNO&index=3&t=2s): [Al-Baqarah:286](https://quran.com/2/286)
 * Understanding Trials & Difficulties
 * Allah does not burden any individual except to that person's capacity
 * any trial, hardhip is customed, tailor to individual capacity

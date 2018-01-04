@@ -17,6 +17,15 @@
 * Do you worship Ramadan or Allah?
 * He remains the bigger priority even after Ramadhan
 
+### [03](https://www.youtube.com/watch?v=wFsYnwI6zEA&list=PLFP6-6Ao4FMm5FnIT9QvstEmhWNugJlNO&index=3&t=2s): [[Al-Baqarah:286](https://quran.com/2/286)
+* Understanding Trials & Difficulties
+* Allah does not burden any individual except to that person's capacity
+* any trial, hardhip is customed, tailor to individual capacity
+* no excure on obligatory commands, though, e.g. staying away form haram
+* a person will benefit whatever they earn
+* do not overestimate the burden that Allah has put on you in terms of responsibility
+* do not underestimate the weight of sin
+
 ### [30](https://www.youtube.com/watch?v=9JL09VjJQWE): [Al-'Asr](https://quran.com/103)
 * time is the biggest asset you have
   * the biggest lost we have is time, so respect time

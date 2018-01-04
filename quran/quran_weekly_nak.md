@@ -1,6 +1,6 @@
 # Quran Weekly - Nouman Ali Khan ([youtube](https://www.youtube.com/playlist?list=PLFP6-6Ao4FMm5FnIT9QvstEmhWNugJlNO))
 
-### [01: Al-Baqarah: 67](https://www.youtube.com/watch?v=pt9fUcL8njY&list=PLFP6-6Ao4FMm5FnIT9QvstEmhWNugJlNO&index=1)
+### [01](https://www.youtube.com/watch?v=pt9fUcL8njY&list=PLFP6-6Ao4FMm5FnIT9QvstEmhWNugJlNO&index=1): [Al-Baqarah: 67](https://quran.com/2/67)
 * take Allah's Commands Seriously
 * time-invariant problem: 
   * people's reaction on instructions **clearly from Allah**: 
@@ -12,7 +12,12 @@
  * never make fun of Allah's commandments
  * when they do give advice and hear inappropriate things should control their emotion and temper
 
-### [30: Al-'Asr](https://www.youtube.com/watch?v=9JL09VjJQWE): 
+### [02](https://www.youtube.com/watch?v=gWZDVYom3RE&list=PLFP6-6Ao4FMm5FnIT9QvstEmhWNugJlNO&index=2&t=7s): [Al-Baqarah: 185](https://quran.com/2/185)
+* finish the count of Ramadhan programs
+* Do you worship Ramadan or Allah?
+* He remains the bigger priority even after Ramadhan
+
+### [30](https://www.youtube.com/watch?v=9JL09VjJQWE): [Al-'Asr](https://quran.com/103)
 * time is the biggest asset you have
   * the biggest lost we have is time, so respect time
   * keep yourself productive, free time destroys most people

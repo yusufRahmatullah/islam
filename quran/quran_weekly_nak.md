@@ -34,6 +34,12 @@
   * spend on relatives, neighbors
 * Allah knows really well anything you spend,
   * so keep it as a secret, only between you and Allah
+  
+### [05](https://www.youtube.com/watch?v=9C6QyjX53cg&list=PLFP6-6Ao4FMm5FnIT9QvstEmhWNugJlNO&t=17s&index=5): https://quran.com/4/29
+* Ethics of Wealth & Money 
+* do not consume each other money using (based on) falsehood
+* scamming is unacceptable
+* be fain in bussiness
 
 ### [30](https://www.youtube.com/watch?v=9JL09VjJQWE): [Al-'Asr](https://quran.com/103)
 * time is the biggest asset you have

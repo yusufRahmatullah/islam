@@ -41,6 +41,16 @@
 * scamming is unacceptable
 * be fain in bussiness
 
+### [06](https://www.youtube.com/watch?v=KVh-W6CjIOc&index=6&list=PLFP6-6Ao4FMm5FnIT9QvstEmhWNugJlNO): https://quran.com/4/147
+* Don't Lose Hope in Allah's Love & Mercy
+* hyprocrate will be in the bottom of the hell fire
+* if you could be just grateful and have faith and Allah himself is appreciative
+* He is not interested in punishing you
+* hy‧poc‧ri‧sy /hɪˈpɒkrəsi $ -ˈpɑː-/ ●○○ noun [uncountable]  
+when someone pretends to have certain beliefs or opinions that they do not really have – used to show disapproval OPP sincerity
+ It would be sheer hypocrisy to pray for success, since I’ve never believed in God.
+ https://www.ldoceonline.com/dictionary/hypocrisy
+
 ### [30](https://www.youtube.com/watch?v=9JL09VjJQWE): [Al-'Asr](https://quran.com/103)
 * time is the biggest asset you have
   * the biggest lost we have is time, so respect time

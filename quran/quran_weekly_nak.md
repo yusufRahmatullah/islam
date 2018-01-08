@@ -51,6 +51,13 @@ when someone pretends to have certain beliefs or opinions that they do not reall
  It would be sheer hypocrisy to pray for success, since I’ve never believed in God.
  https://www.ldoceonline.com/dictionary/hypocrisy
 
+### [07](https://www.youtube.com/watch?v=tXsMMj7m9tQ&index=7&list=PLFP6-6Ao4FMm5FnIT9QvstEmhWNugJlNO): https://quran.com/5/100
+* Filth vs Good & Pure
+* the filthy and the good and pure will never be equal in the sight of Allah.
+* even if filth become acceptable
+* be clear open deep thought, so that you become successful
+* lot of effort to get good and pure
+
 ### [30](https://www.youtube.com/watch?v=9JL09VjJQWE): [Al-'Asr](https://quran.com/103)
 * time is the biggest asset you have
   * the biggest lost we have is time, so respect time

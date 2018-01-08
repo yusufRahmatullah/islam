@@ -58,6 +58,17 @@ when someone pretends to have certain beliefs or opinions that they do not reall
 * be clear open deep thought, so that you become successful
 * lot of effort to get good and pure
 
+### [08](https://www.youtube.com/watch?v=6NFo35g7zo8&list=PLFP6-6Ao4FMm5FnIT9QvstEmhWNugJlNO&index=8): https://quran.com/6/151
+* Parents in Islam
+* When it comes to treatment of our parents, 
+Allah does not accept a small effort, a mediocre effort, or even a good effort. When it comes to treatment of our parents, Allah has one word: Ihsan (perfection, excellence, the very best)!
+* impermissible, reversed forms!:
+  * do not shirk with Allah
+  * do not kill children becuase of bankruptcy
+  * do not engange in any form of shamelessness, do not approach immoralities
+  * do not kill a person without justification, do not engage in murder
+* when it come to your parents: ihsan (the best, in the very best way we possibly can)
+
 ### [30](https://www.youtube.com/watch?v=9JL09VjJQWE): [Al-'Asr](https://quran.com/103)
 * time is the biggest asset you have
   * the biggest lost we have is time, so respect time

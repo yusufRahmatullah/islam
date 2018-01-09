@@ -69,6 +69,17 @@ Allah does not accept a small effort, a mediocre effort, or even a good effort. 
   * do not kill a person without justification, do not engage in murder
 * when it come to your parents: ihsan (the best, in the very best way we possibly can)
 
+### [09](https://www.youtube.com/watch?v=2i80milYJAc&list=PLFP6-6Ao4FMm5FnIT9QvstEmhWNugJlNO&index=9): https://quran.com/7/164
+* Don't condemn other Muslims who are committing sins to Hell. 
+We don't have such authority and Allah will definitely ask us 
+why we abandoned them, condemned them, and why we did not try to advise them.
+* Dakwah will be an excuse for us before Allah; at least, we try to counsel them sincerely
+* Allah will ask us: why did you abandon your brother/sister?
+* They may have taqwa in the future
+* Motivations for reminding people (who are far away from the religion):
+  * we have to justify our concern to them before Allah
+  * who knows, they will turn around
+
 ### [30](https://www.youtube.com/watch?v=9JL09VjJQWE): [Al-'Asr](https://quran.com/103)
 * time is the biggest asset you have
   * the biggest lost we have is time, so respect time

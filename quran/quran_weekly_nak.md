@@ -80,6 +80,16 @@ why we abandoned them, condemned them, and why we did not try to advise them.
   * we have to justify our concern to them before Allah
   * who knows, they will turn around
 
+### [10](https://www.youtube.com/watch?v=RlKDxmw466Y&list=PLFP6-6Ao4FMm5FnIT9QvstEmhWNugJlNO&index=10): https://quran.com/9/41
+* What You Can Contribute to Islam
+* Everyone has something that they can contribute to Islam. 
+Whether you have a lot of money or a little, a lot of knowledge or no knowledge, 
+a lot of talent or very little talent, march forward for Allah and His religion.
+* this ayah is in the context of Tabuk war
+* everyone should work in accordance with their predisposition
+* Islam is about taking care of yourself then doing something more, beyond your own needs, 
+e.g helping others, spreading this deen, giving good advice
+
 ### [30](https://www.youtube.com/watch?v=9JL09VjJQWE): [Al-'Asr](https://quran.com/103)
 * time is the biggest asset you have
   * the biggest lost we have is time, so respect time

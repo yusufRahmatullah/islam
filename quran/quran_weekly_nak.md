@@ -100,6 +100,11 @@ So Allah will deal with them.
 * mission: learning Islam properly and sharing the truth of Islam with others in a decent way
 * do not let aggresive, hateful, distracting tactics of those who hate us
 
+### [12](https://www.youtube.com/watch?v=K1uQ1l4LQFE&t=23s&list=PLFP6-6Ao4FMm5FnIT9QvstEmhWNugJlNO&index=12): https://quran.com/12/23
+* temptation, the story of Yusuf, a timeless problem
+* remember Allah, I see the refugee of Allah
+* get away from the temptation, do not engage
+
 ### [30](https://www.youtube.com/watch?v=9JL09VjJQWE): [Al-'Asr](https://quran.com/103)
 * time is the biggest asset you have
   * the biggest lost we have is time, so respect time

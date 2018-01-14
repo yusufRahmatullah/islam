@@ -90,6 +90,16 @@ a lot of talent or very little talent, march forward for Allah and His religion.
 * Islam is about taking care of yourself then doing something more, beyond your own needs, 
 e.g helping others, spreading this deen, giving good advice
 
+### [11](https://www.youtube.com/watch?v=Btsvfuu2eE4&t=61s&index=11&list=PLFP6-6Ao4FMm5FnIT9QvstEmhWNugJlNO): https://quran.com/10/65
+* Those Who Insult Allah
+* All authority, respect, honor, and dignity undoubtedly belongs to Allah. 
+No one will ever successfully disrespect Him. 
+And we had better know that Allah owns whoever is in the skies and whoever is on the earth; He owns all of them. 
+So Allah will deal with them.
+* Allah is all hearing, all knowing
+* mission: learning Islam properly and sharing the truth of Islam with others in a decent way
+* do not let aggresive, hateful, distracting tactics of those who hate us
+
 ### [30](https://www.youtube.com/watch?v=9JL09VjJQWE): [Al-'Asr](https://quran.com/103)
 * time is the biggest asset you have
   * the biggest lost we have is time, so respect time

@@ -105,6 +105,17 @@ So Allah will deal with them.
 * remember Allah, I see the refugee of Allah
 * get away from the temptation, do not engage
 
+### [13](https://www.youtube.com/watch?v=eThSNtJe7SY&index=13&list=PLFP6-6Ao4FMm5FnIT9QvstEmhWNugJlNO): https://quran.com/14/7
+* Stop Complaining & Be Grateful
+* If we show Allah just a little bit of gratitude, He tells us, 'I will increase you, and increase you, and increase you, 
+I swear to it. If you could only show Me the least bit of gratitude.
+* I will surely increase you, 
+  * use "I" not "We"
+  * no limit in "increare"
+* gratitude comes first, then patience
+* be appreciative, grateful should be a way of life
+* stop being gloomy and pessimistic, stop looking down side of everything
+
 ### [30](https://www.youtube.com/watch?v=9JL09VjJQWE): [Al-'Asr](https://quran.com/103)
 * time is the biggest asset you have
   * the biggest lost we have is time, so respect time

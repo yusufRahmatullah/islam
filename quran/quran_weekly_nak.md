@@ -116,6 +116,15 @@ I swear to it. If you could only show Me the least bit of gratitude.
 * be appreciative, grateful should be a way of life
 * stop being gloomy and pessimistic, stop looking down side of everything
 
+## [14](https://www.youtube.com/watch?v=Vvn2WCO_zPg&index=14&t=15s&list=PLFP6-6Ao4FMm5FnIT9QvstEmhWNugJlNO): https://quran.com/16/98
+* Seek Refuge with Allah from Satan
+* When you recite the Qur'an, Satan will come and try to put you to sleep, 
+he will put evil thoughts in your head, and remind you about the 20 other things you have to do. 
+So start reciting by saying, "A'udhu billahi min ash-shaytaan-ir-rajeem" (I seek refuge with Allah from Satan the accursed).
+* Satan wants a distance between you and Allah,
+he wants to corrupt your experience with the Quran
+* should genuinely seek Allah's protection from the satan.
+
 ### [30](https://www.youtube.com/watch?v=9JL09VjJQWE): [Al-'Asr](https://quran.com/103)
 * time is the biggest asset you have
   * the biggest lost we have is time, so respect time

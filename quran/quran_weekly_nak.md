@@ -125,6 +125,15 @@ So start reciting by saying, "A'udhu billahi min ash-shaytaan-ir-rajeem" (I seek
 he wants to corrupt your experience with the Quran
 * should genuinely seek Allah's protection from the satan.
 
+## [15](https://www.youtube.com/watch?v=3xOK85qRQ_o&index=15&list=PLFP6-6Ao4FMm5FnIT9QvstEmhWNugJlNO): https://quran.com/18/23-24
+* Allah instructs us to never utter a future plan or action without adding "in sha Allah" (if Allah wills). 
+Unfortunately, we use this expression loosely or when we are not serious about going through with a plan.
+* I will do this for sure, unless Allah will otherwise (for making commitment) 
+* It is a recognizition that the future is not in our hand
+* the will of Allah is out of our control
+* Insya Allah != I am not doing that / probably not
+* will do with the best we can do, but things are ultimately in the hand of Allah
+
 ### [30](https://www.youtube.com/watch?v=9JL09VjJQWE): [Al-'Asr](https://quran.com/103)
 * time is the biggest asset you have
   * the biggest lost we have is time, so respect time

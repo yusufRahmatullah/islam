@@ -134,6 +134,15 @@ Unfortunately, we use this expression loosely or when we are not serious about g
 * Insya Allah != I am not doing that / probably not
 * will do with the best we can do, but things are ultimately in the hand of Allah
 
+## [16](https://www.youtube.com/watch?v=WAwI1MvBViE&list=PLFP6-6Ao4FMm5FnIT9QvstEmhWNugJlNO&index=16): https://quran.com/19/59
+* What Leads to Deviation & Hellfire?
+* Wasting or neglecting the salah (prayer) and leaving the commandments of Allah for our own desires, 
+ultimately leads to deviation in faith and Ghayyun (a cave in Hell with severe punishment)
+* Bani Israel is described as a deteriorated nation
+  * they wasted the prayer
+  * they follow their desire, whim
+  * they eventually meet ultimate deviation (in belief)
+
 ## [30](https://www.youtube.com/watch?v=9JL09VjJQWE): [Al-'Asr](https://quran.com/103)
 * time is the biggest asset you have
   * the biggest lost we have is time, so respect time

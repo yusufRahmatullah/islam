@@ -143,6 +143,15 @@ ultimately leads to deviation in faith and Ghayyun (a cave in Hell with severe p
   * they follow their desire, whim
   * they eventually meet ultimate deviation (in belief)
 
+## [17](https://www.youtube.com/watch?v=x9nMCACgvqk&list=PLFP6-6Ao4FMm5FnIT9QvstEmhWNugJlNO&index=17): https://quran.com/22/11
+* What is the Ultimate Loss?
+* Allah tells us about a person who is satisfied with Islam and Allah as long as his life is good. 
+However, if a trial or calamity befalls him, he turns back on his faith as if he never believed in Allah to begin with. A
+llah says that this person has lost his dunya (worldly life) and his akhira (hereafter).
+* ask Allah for firmness of your heart, that you are able to maintain strength of our faith through difficult times
+* Yaa Muqallibal Quluub, Tsabbit Qalbi ‘Ala Ta'atik: 
+Wahai Dzat yg membolak-balikan hati teguhkanlah hatiku diatas ketaatan kepadamu
+
 ## [30](https://www.youtube.com/watch?v=9JL09VjJQWE): [Al-'Asr](https://quran.com/103)
 * time is the biggest asset you have
   * the biggest lost we have is time, so respect time

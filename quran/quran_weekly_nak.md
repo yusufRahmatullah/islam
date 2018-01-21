@@ -152,6 +152,13 @@ llah says that this person has lost his dunya (worldly life) and his akhira (her
 * Yaa Muqallibal Quluub, Tsabbit Qalbi ‘Ala Ta'atik: 
 Wahai Dzat yg membolak-balikan hati teguhkanlah hatiku diatas ketaatan kepadamu
 
+## [18](https://www.youtube.com/watch?v=y5YpDilwN04&list=PLFP6-6Ao4FMm5FnIT9QvstEmhWNugJlNO&index=18): https://quran.com/24/19
+* For the believers who spread shamelessness and vulgarity, 
+by actively taking part in it or even spreading it to others with their tongue, 
+Allah says that they will have a punishment in this life and the next.
+* Quran deal with the subject of intimacy (between men and women) in an implicit way, always be alluded to
+* May Allah _not_ make us of those who are culprit in spreading and lowering the standard of shame/appropriateness among Muslims
+
 ## [30](https://www.youtube.com/watch?v=9JL09VjJQWE): [Al-'Asr](https://quran.com/103)
 * time is the biggest asset you have
   * the biggest lost we have is time, so respect time

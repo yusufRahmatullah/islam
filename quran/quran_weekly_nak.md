@@ -164,6 +164,13 @@ Allah says that they will have a punishment in this life and the next.
 * Allah informs us of the regret we will feel on the Day of Judgment over choosing friends that harm our Hereafter.
 * Believe in the prophet only is not enough, you have to apply his path to your lifesytle
 
+## [20](https://www.youtube.com/watch?v=DzSDr5xiGIE&index=20&list=PLFP6-6Ao4FMm5FnIT9QvstEmhWNugJlNO): https://quran.com/28/10
+* Healing for Emotional Suffering 
+* Whatever trauma, pain, or anguish you are suffering from, 
+know that Allah can and will intervene and give you peace in your mind and in your heart
+* this is ayah about good hope
+* Allah indeed has the ability to let us heal and move on
+
 ## [30](https://www.youtube.com/watch?v=9JL09VjJQWE): [Al-'Asr](https://quran.com/103)
 * time is the biggest asset you have
   * the biggest lost we have is time, so respect time

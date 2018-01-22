@@ -159,6 +159,11 @@ Allah says that they will have a punishment in this life and the next.
 * Quran deal with the subject of intimacy (between men and women) in an implicit way, always be alluded to
 * May Allah _not_ make us of those who are culprit in spreading and lowering the standard of shame/appropriateness among Muslims
 
+## [19](https://www.youtube.com/watch?v=T_DMb8o32c8&index=19&list=PLFP6-6Ao4FMm5FnIT9QvstEmhWNugJlNO): https://quran.com/25/27-30
+* Importance of Good Company
+* Allah informs us of the regret we will feel on the Day of Judgment over choosing friends that harm our Hereafter.
+* Believe in the prophet only is not enough, you have to apply his path to your lifesytle
+
 ## [30](https://www.youtube.com/watch?v=9JL09VjJQWE): [Al-'Asr](https://quran.com/103)
 * time is the biggest asset you have
   * the biggest lost we have is time, so respect time

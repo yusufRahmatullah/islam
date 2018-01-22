@@ -1,2 +1,2 @@
 # lesson
-Lessons from various (good) teachers on various topics.
+Lessons on various topics from good teachers.

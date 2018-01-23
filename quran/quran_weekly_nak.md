@@ -171,6 +171,13 @@ know that Allah can and will intervene and give you peace in your mind and in yo
 * this is ayah about good hope
 * Allah indeed has the ability to let us heal and move on
 
+## [21](https://www.youtube.com/watch?v=0qAhT7MV0Fg&index=21&list=PLFP6-6Ao4FMm5FnIT9QvstEmhWNugJlNO): https://quran.com/30/22
+* A Muslim is Not Racist
+* The fact that so many skin colors and languages came from a single male and a single female (Adam and Hawa) 
+is a miraculous sign of Allah
+* this ayah is about diversity
+* diverse languages and colors are a sign of God
+
 ## [30](https://www.youtube.com/watch?v=9JL09VjJQWE): [Al-'Asr](https://quran.com/103)
 * time is the biggest asset you have
   * the biggest lost we have is time, so respect time

@@ -178,6 +178,13 @@ is a miraculous sign of Allah
 * this ayah is about diversity
 * diverse languages and colors are a sign of God
 
+## [22](https://www.youtube.com/watch?v=bFUACCm25ok&index=22&list=PLFP6-6Ao4FMm5FnIT9QvstEmhWNugJlNO): https://quran.com/33/70
+* Speak Honestly, Correctly, & Truthfully 
+* taqwa: fear Allah, one way you can have taqwa is by doing what Allah tells
+* in this ayah, Allah tells us: say the right thing, say what is right (sadeeda)
+* speak clearly, so that no room for misintrepretation, say what you mean, otherwise just be quiet
+* for example, saying salam "assalamu'alaikum" should be "sadeeda"q
+
 ## [30](https://www.youtube.com/watch?v=9JL09VjJQWE): [Al-'Asr](https://quran.com/103)
 * time is the biggest asset you have
   * the biggest lost we have is time, so respect time

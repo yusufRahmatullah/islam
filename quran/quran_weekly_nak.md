@@ -183,7 +183,12 @@ is a miraculous sign of Allah
 * taqwa: fear Allah, one way you can have taqwa is by doing what Allah tells
 * in this ayah, Allah tells us: say the right thing, say what is right (sadeeda)
 * speak clearly, so that no room for misintrepretation, say what you mean, otherwise just be quiet
-* for example, saying salam "assalamu'alaikum" should be "sadeeda"q
+* for example, saying salam "assalamu'alaikum" should be "sadeeda"
+
+## [23](https://www.youtube.com/watch?v=PKFc1o8Yvzk&list=PLFP6-6Ao4FMm5FnIT9QvstEmhWNugJlNO&index=23): https://quran.com/38/21-23
+* Don't Rush to Judgment, but calm down first, understand the situation carefully
+* When you are asked to judge between people, do not judge based on your biases or emotions.
+* this ayah is about the prophet (khalifa) Dawud to judge people by justice
 
 ## [30](https://www.youtube.com/watch?v=9JL09VjJQWE): [Al-'Asr](https://quran.com/103)
 * time is the biggest asset you have

@@ -190,6 +190,12 @@ is a miraculous sign of Allah
 * When you are asked to judge between people, do not judge based on your biases or emotions.
 * this ayah is about the prophet (khalifa) Dawud to judge people by justice
 
+## [24](https://www.youtube.com/watch?v=R6XHHcbcitI&t=96s&list=PLFP6-6Ao4FMm5FnIT9QvstEmhWNugJlNO&index=24): https://quran.com/39/53
+* A Message (Qul...: Say,...) of Hope
+* We have done so much wrong in our lives, but Allah has the ability to forgive ALL of it. 
+So don't lose hope and cut yourself off from the Mercy of Allah.
+* Do not lose hope for the Mercy of Allah,...we have to repent (tawba)
+
 ## [30](https://www.youtube.com/watch?v=9JL09VjJQWE): [Al-'Asr](https://quran.com/103)
 * time is the biggest asset you have
   * the biggest lost we have is time, so respect time

@@ -196,6 +196,13 @@ is a miraculous sign of Allah
 So don't lose hope and cut yourself off from the Mercy of Allah.
 * Do not lose hope for the Mercy of Allah,...we have to repent (tawba)
 
+## [25](https://www.youtube.com/watch?v=iLvV_1JT2Ik&list=PLFP6-6Ao4FMm5FnIT9QvstEmhWNugJlNO&index=25): https://quran.com/42/36-37
+* Allah states that if we want to be people who enjoy everlasting goodness and happiness in the afterlife, 
+then we must stay away from the most serious of sins (dealing with interest, alcohol, adultery, gambling, drugs, pornography, etc.) and all forms of shamelessness. 
+* What Allah will give to us afterlife is better and lasts longer, for people that can avoid (stay away from) 
+  * major sins
+  * shamelessness
+
 ## [30](https://www.youtube.com/watch?v=9JL09VjJQWE): [Al-'Asr](https://quran.com/103)
 * time is the biggest asset you have
   * the biggest lost we have is time, so respect time

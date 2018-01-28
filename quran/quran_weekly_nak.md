@@ -218,6 +218,12 @@ respect to him is driving you to help him)
   * to achieve this, we have to rescept the messenger, 
   * the relationship with the messenger determines whether we can (have respect to) exalt Allah
 
+## [27](https://www.youtube.com/watch?v=kvUU1g4i2bk&list=PLFP6-6Ao4FMm5FnIT9QvstEmhWNugJlNO&index=27): https://quran.com/57/16-17
+* is not it time that you felt something? that you feld overwhelmed that Allah is talking to you through these words
+* with Quran, we are supposed to have a relationship that moves us to tears ; not just intellectual,ritualistic relationship
+* the heart should be overwhelmed with the fear of Allah, with the awe of Allah, with the grandeur of Allah
+* do not allow passive relationship with Quran
+
 ## [30](https://www.youtube.com/watch?v=9JL09VjJQWE): [Al-'Asr](https://quran.com/103)
 * time is the biggest asset you have
   * the biggest lost we have is time, so respect time

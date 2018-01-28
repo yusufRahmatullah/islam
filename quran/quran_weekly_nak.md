@@ -203,6 +203,21 @@ then we must stay away from the most serious of sins (dealing with interest, alc
   * major sins
   * shamelessness
 
+## [26](https://www.youtube.com/watch?v=v_zrDh9Ny8g&list=PLFP6-6Ao4FMm5FnIT9QvstEmhWNugJlNO&t=29s&index=26): https://quran.com/48/8-9
+* After learning and understanding what our Prophet did and endured for us, 
+Allah says that we better have a deep and overwhelming sense of respect for Prophet Muhammad (peace be upon him). 
+* our relationship with the messeger, which is sent as 
+  * a witness (he will testify)
+  * a giver of good news
+  * a warner
+* so, honor him, help him out of overwhelming respect for him 
+(not becuause he needs help, but because you can not tolerate not helping when you are there; 
+respect to him is driving you to help him)
+* O Allah, help whoever helps the religion of Muhammad
+* this ayah ends with: "to declare Allah's perfection, to Exalt Allah"
+  * to achieve this, we have to rescept the messenger, 
+  * the relationship with the messenger determines whether we can (have respect to) exalt Allah
+
 ## [30](https://www.youtube.com/watch?v=9JL09VjJQWE): [Al-'Asr](https://quran.com/103)
 * time is the biggest asset you have
   * the biggest lost we have is time, so respect time

@@ -224,6 +224,17 @@ respect to him is driving you to help him)
 * the heart should be overwhelmed with the fear of Allah, with the awe of Allah, with the grandeur of Allah
 * do not allow passive relationship with Quran
 
+## [28](https://www.youtube.com/watch?v=xJRf_4tojx4&t=25s&index=28&list=PLFP6-6Ao4FMm5FnIT9QvstEmhWNugJlNO): https://quran.com/64/11
+* nothing (the calamity, musibah) happens to you that was not actually meant for you
+* it is Allah's permission that allowed for what happened to you to happen to you, good or bad
+* Masha'Allah: whatever Allah will;
+is an Arabic phrase that means "God has willed" or "as God willing", 
+expresses appreciation, joy, praise, or thankfulness for an event or person that was just mentioned.
+* truly accepting that I am a slave of Allah, that he is our master: I am pleased with the will of Allah
+* Whoever can maintain their iman during calamity, Allah will give him: Allah will guide his heart.
+* we belong to Allah and to Him is our return
+* Surah Al-Taghabun is the surah of the fruits of iman
+
 ## [30](https://www.youtube.com/watch?v=9JL09VjJQWE): [Al-'Asr](https://quran.com/103)
 * time is the biggest asset you have
   * the biggest lost we have is time, so respect time

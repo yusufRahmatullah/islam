@@ -235,6 +235,14 @@ expresses appreciation, joy, praise, or thankfulness for an event or person that
 * we belong to Allah and to Him is our return
 * Surah Al-Taghabun is the surah of the fruits of iman
 
+## [29](https://www.youtube.com/watch?v=Ugx4MZK3EGQ&list=PLFP6-6Ao4FMm5FnIT9QvstEmhWNugJlNO&index=29): https://quran.com/71/10-12
+* in this Surah, Nuh is telling Allah: what he did with his nations, what he has accomplished, ...
+* what do you get if you istighfar (ask Allah for forgiveness):
+  * the forgiveness
+  * rain that is full of life
+  * He will extend your means when it comes to money and children
+* Istighfar (genuinely asking Allah to forgive) as not only a worldly benefit packages but also the blessing of the afterlife
+  
 ## [30](https://www.youtube.com/watch?v=9JL09VjJQWE): [Al-'Asr](https://quran.com/103)
 * time is the biggest asset you have
   * the biggest lost we have is time, so respect time

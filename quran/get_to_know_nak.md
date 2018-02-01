@@ -12,3 +12,8 @@
   * merge knowledge and action: (guide us to) the straight path
 * https://rumaysho.com/3228-faedah-2-surat-al-fatihah.html
 
+## [Ep. 2 - Surah Al-Baqarah](https://www.youtube.com/watch?v=87PWw4LTkuM&index=2&list=PLHPW7nn9Wmb4NhafhzF_qBQR1uQ_p9p_H)
+* Holding on to it is blessing upon blessing. Abandoning it is regret. 
+Get to Know the Surah that angels descend to the sky for when it is recited.
+* recite Quran because it will come on your behalf for its companion on the judgement day
+* next: 7:00

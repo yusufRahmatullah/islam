@@ -1,22 +1,32 @@
-surat al-fatihah itu sebagai ruqyah
+# al-fatihah (makkiyah)
 
+al-fatihah:
+* pembukaan kitab secara tertulis,
+* ummul quran
+* as-sab'ul matsani (7 ayat yang dibaca berulang-ulang)
+* al-hamdu dan ash-shalah (tidak sah solat tanpa membaca al-fatihah)
+* sebagai syifa' (penyembuh), ruqyah
+
+hadist:
 sampaikan berita gembira kepada umatmu mengenai dua cahaya,
 yang belum pernah diberikan kepada nabi sebelummu:
-a) fatihatul kitab dan
+a) fatihatul kitab, dan
 b) bbrp ayat terakhir surat al-baqarah
 
-tidak sah solat tanpa membaca al-fatihah
-
-isti'adzah (=ta'awwudz): a'udzubillah himinassyaitoon ...
-guna mengusir godaan setan
-
-jumhur ulama:
-ta'awwudz dibaca setelah takbir sebelum al-fatihah
+isti'adzah (=ta'awwudz): a'udzubillah himinassyaitoon ...,
+guna mengusir godaan setan;
+jumhur ulama: ta'awwudz dibaca setelah takbir sebelum al-fatihah
 
 dalil about reading isti'adzah:
-al-a'raaf: 200
-al-mukminun: 96 - 98
-al-fussilat: 34 -36
+an-nahl: 98-100,
+al-a'raaf: 200,
+al-mukminun: 96 - 98,
+al-fussilat: 34 -36,
+
+hadist:
+yang membatalkan solat: wanita, keledai, anjing hitam (= syaitan)
+
+next: 40/152
 
 nama arrahman hanya untuk allah
 sedangkan arrahim bisa untuk allah dan allah pernah menyebutkan untuk selain NYA

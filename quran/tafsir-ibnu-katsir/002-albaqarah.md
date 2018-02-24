@@ -12,11 +12,11 @@ bacalah az-zahrawain
 (surat yang akan datang pada hari kiamat sebagai naungan):
 al-baqarah dan ali-imran
 
-## 2:1
+## 2: 1
 hendaklah menyerahkan makna alif-lam-mim kepada Allah,
 hingga diperolah kejelasan tentangnya
 
-## 2:2
+## 2: 2
 see:
 as-sajdah: 1
 
@@ -29,13 +29,13 @@ hudaa (petunjuk):
 keimanan yang tertanam di dalam hati (oleh Allah),
 al-qashash: 56, al-kahfi: 17
 
-## 2:3
+## 2: 3
 seringakali ALlah mempersandingkan antara
 * shalat: hak Allah
 * infak (zakat): perbuatan baik kepada sesama makhluk:
   keluarga, kerabat, orang terdekat, ...
 
-## 2:4
+## 2: 4
 next: 71/152
 
 ## misc

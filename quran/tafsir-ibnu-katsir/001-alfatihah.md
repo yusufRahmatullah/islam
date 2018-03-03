@@ -1,6 +1,6 @@
 # 1: al-fatihah (pembukaan), makkiyah
 
-## 1:1
+## 1: 1
 al-fatihah:
 * pembukaan kitab secara tertulis,
 * ummul quran
@@ -37,21 +37,20 @@ allah pernah menyebutkan untuk selain NYA;
 al-israa: 110,
 at-taubah: 128,
 
-## 1:2
-
+## 1: 2
 hadist:
 sebaik-baik dzikir adalah La ilaaha illallaah
 dan sebaik-baik doa adalah alhamdulillah
 
-## 1:3
+## 1: 3
 see, 1:1
 
-## 1:4
+## 1: 4
 see:
 an-naba: 38,
 an-nuur: 25,
 
-## 1:5
+## 1: 5
 ibadah,
 * secara bahasa: tunduk, patuh;
 * secara syariat: ungkapan dari kesempurnaan cinta, ketundukan, dan ketakutan
@@ -67,7 +66,7 @@ Dan bagi hambaKU apa yang ia minta.
 ibadah kepadaNya merupakan tujuan, sedangkan
 permohonan pertolongan merupakan sarana untuk beribadah
 
-## 1:6
+## 1: 6
 Adab mengajukan permintaan:
 memuji RABB yang akan ia minta,
 kemudian memohon permintaan,
@@ -79,7 +78,7 @@ al-balad: 10,
 an-nahl: 121,
 asy-syura: 52,
 
-## 1:7
+## 1: 7
 see:
 an-nisaa: 69-70,
 

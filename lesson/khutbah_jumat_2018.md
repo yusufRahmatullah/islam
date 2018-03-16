@@ -1,5 +1,12 @@
 # khutbah_jumat_2018
 
+## 20180316 @UQ: our need to do Islamic prayers
+* https://quran.com/5/3
+* praying is to remember Allah; https://quran.com/20/14
+* praying is a way to be grateful to Allah
+* praying is to obey Allah's order
+* https://rumaysho.com/5547-keutamaan-shalat-lima-waktu-1.html
+
 ## 20180309 @UQ: ethics in doing business with others
 * humans need social interactions, different people have different specialization
 * https://quran.com/83

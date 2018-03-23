@@ -1,5 +1,12 @@
 # khutbah_jumat_2018
 
+## 20180323 @UQ: wealth from Islam's perspective
+* https://muslimah.or.id/205-demi-allah-bukan-kemiskinan-yang-aku-khawatirkan-menimpa-kalian.html
+* https://konsultasisyariah.com/12356-penduduk-surga.html
+* https://rumaysho.com/296-lihatlah-orang-di-bawahmu-dalam-masalah-harta-dan-dunia.html
+* https://firanda.com/index.php/artikel/adab-akhlaq/1145-penjelasan-hadits-adab-akhlaq-bulughul-maram-4-pandanglah-orang-yang-di-bawahmu-dalam-masalah-dunia
+* http://pustakaimamsyafii.com/melihat-kepada-orang-yang-lebih-rendah-kedudukannya-dalam-hal-materi-dan-penghidupan.html
+
 ## 20180316 @UQ: our need to do Islamic prayers
 * https://quran.com/5/3
 * praying is to remember Allah; https://quran.com/20/14

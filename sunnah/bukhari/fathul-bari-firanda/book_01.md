@@ -1,4 +1,6 @@
-# 1: kitab tentang permulaan datangnya wahyu
+# book 1: permulaan turunnya wahyu
+
+# ch 1: cara permulaan turunnya wahyu kepada rasullullah
 bagaimana wahyu pertama kali turun kepada nabi
 
 * quran.com/4/163:

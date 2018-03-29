@@ -1,5 +1,6 @@
-# 2: kitabul imaan
+# book 2: imaan
 
+# ch 2: doa adalah iman
 * segala kebaikan akan diterima jika dilandasi dgn iman
 * iman adalah keyakinan di hati, perkataan (lisan) dan perbuatan (anggota tubuh),
   bisa naik dan turun, at-taubah: 124
@@ -47,6 +48,7 @@
   * al-mu'minuun: 1
 * biasakan solat (sujud)
 
+# ch 3: masalah iman dan firman Allah
 ## 9: abu hurairah
 * iman itu
   * ada 60/70 sekian cabang
@@ -58,22 +60,26 @@
   * rasa malu bagian dari iman
 * malu adalah mulia, jika ditujukan untuk yang syari maka akan menjadi sumber amal
 
+# ch 4: orang muslim adalah orang yang menyelamatkan orang islam dari lisan dan tangannya
 ## 10: abdullah bin amr bin ash
 * seorang muslim yg sejati adalah seorang yang
   * kaum muslimin selamat dari gangguan lisan dan tangannya
 * orang muhajir adalah yang meninggalkan segala larangan Allah
 
+# ch 5: bagaimanakah islam yang paling baik
 ## 11: abi musa
 * islam yang paling afdal:
   * seorang yang kaum muslimin selamat dari lisan dan tangannya
 * islam itu bertingkat2
 
+# ch 6: memberi makan adalah perangai islam
 ## 12: abdullah bin umar
 * islam yang terbaik:
   * memberi makan orang yang perlu
   * mengucapkan salam kepada yg dikenal atau tidak kenal
 * dilarang mengucapkan salam kepada orang kafir
 
+# ch 7: mencintai saudaranya sebagaimana mencintai diri sendiri adalah sebagian dari iman
 ## 13: anas bin malik
 * menghendaki kebaikan untuk saudara, sebagaimana kebaikan untuk diri sendiri
   * mencakup kebaikan dunia dan akhirat
@@ -84,12 +90,14 @@
   * "la" di awal adalah untuk penafian
     * di dalam syariat: "la" tersebut digunakan jika ada sesuatu yang wajib ditinggalkan
 
+# ch 8: mencintai rasul sebagian dari iman
 ## 14: abu hurairah, 15: anas
 * mencintai rasullullah adalah bagian dari iman,
 * wajib mencintainya lebih daripada orang tua, anaknya, seluruh manusia (termasuk dirinya sendiri)
 * why: jasanya
 * berusaha mencitainya dgn mempelajari sunnahnya (aklaqnya)
 
+# ch 9: manisnya iman
 ## 16: anas
 * 3 perkara untuk merasakan manisnya iman:
   * mencintai Allah dan rasulnya (sbg satu kesatuan) lebih dari yang lain
@@ -97,6 +105,7 @@
   * benci kepada kekufuran sebagaimana benci dilemparkan ke neraka
 * jika seorang tidak merasakan manisnya iman, maka perbaiki hatinya
 
+# ch 10: mencintai kaum anshar adalah tanda keimanan
 ## 17: anas
 * tanda keimanan: mencintai kaum anshar
 * kaum anshar = kaum penolong, dari madinah, dari 2 suku Auz, dan Khozroj
@@ -105,6 +114,7 @@
 * mencintai sahabat karena Allah
 * nabi: jangan mencela sahabatku, karena kebaikan mereka
 
+# ch 11:
 ## 18: ubadah
 * nabi: berjanjilah kepadaku untuk
   * tidak mempersekutukan Allah
@@ -128,6 +138,43 @@
 * bohong: adalah dosa besar
 * Allah tidak mengampuni dosa syirik, selain itu tergantung kehendak Allah
 
+# ch 12: menghindar dari fitnah merupakan bagian dari agama
+here, dari agama == dari iman
+
+## 19: abu said al khudri
+* hampir2 harta seorang muslim adalah kambing yang dibawa ke puncak2 gunung dan lembah2,
+  karena ia ingin menyelamatkan agamnya dari fitnah
+* why kambing:
+  * orang memelihara kambing biasanya tawaduk (bukan kuda, unta)
+  * nabi2 memelihara kambing untuk melatih kesabaran
+* disunnahkan menjauh untuk menyelamatkan agamanya
+  * jika fitnah sudah merajalela,
+  * dipaksa untuk melakukan maksiat oleh penguasa, eg. kisah asbabul kahfi
+
+# ch 13: aku (nabi) yang paling tahu tentang Allah di antara kalian,
+* makrifta = pengetahuan + pembenaran
+* manusia lahir dgn fitrah bertauhid kepada Allah, kemudian orang tuanya yang mempengaruhi tauhidnya
+
+## 20: aisyiah
+* rasulullah memeritah sahabat untuk beramal yang sanggup mereka kerjakan,
+  sahabat ingin lebih dari itu, maka rasullulah marah
+* yang lebih afdhol:
+  * musafir: salat 2 rakaat (daripada 4 rakaat, dgn qalbiyah, bakdiyah)
+  * haji tamatuk: umrah kemudian haji
+* ibadah yang paling baik adalah sedikit tapi yang berkesinambungan, kontinu
+* petunjuk nabi adalah yang terbaik, cukup dengan mencontoh nabi
+* disyariatkan marah (sesuai syariat) jika ada pelanggaran syariat
+* boleh menyebutkan kelebihan dirinya jika memang perlu
+
+# ch 14: benci untuk kembali kekufuran seperti benci untuk dimasukkan ke neraka adalah bagian dari iman
+## 21: anas (repeat)
+* benci untuk kembali kekufuran seperti benci untuk dimasukkan ke neraka adalah bagian dari iman
+
+# ch 15: tingkatan orang yang beriman dalam beramal
+## 22: abu said al kudri
+* orang yg bertauhid mungkin masuk neraka dulu sblm surga
+* iman dalam hari bertingkat2, ada yang sebesar biji sawi
+
 next
-95/440
-Kajian Kitab Syarah Kitab Shahih Bukhari Kajian Ke-9 - Ustad
+120/440
+Kajian Kitab Syarah Kitab Shahih Bukhari Kajian Ke-10 - Usta

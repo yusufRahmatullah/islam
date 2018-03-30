@@ -1,5 +1,10 @@
 # khutbah_jumat_2018
 
+## 20180330 @UQ: the sweetness of Iman
+* http://kisahmuslim.com/700-kisah-perjuangan-bilal-bin-rabah-radhiallahu-anhu.html
+* https://www.youtube.com/watch?v=oAyW4_waoy8
+* http://ibnusulamin.blogspot.com.au/2011/12/ketahui-4-kisah-bayi-yang-dapat.html
+
 ## 20180323 @UQ: wealth from Islam's perspective
 * https://muslimah.or.id/205-demi-allah-bukan-kemiskinan-yang-aku-khawatirkan-menimpa-kalian.html
 * https://konsultasisyariah.com/12356-penduduk-surga.html

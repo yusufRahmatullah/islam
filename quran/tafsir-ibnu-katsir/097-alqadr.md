@@ -1,4 +1,4 @@
-# 97: al-qard (kemuliaan)
+# 97: al-qadr (kemuliaan)
 
 ## 97: 1 - 5
 * al quran diturunkan di bulan ramadhan pada malam al qadr

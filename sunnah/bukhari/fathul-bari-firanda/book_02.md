@@ -175,6 +175,51 @@ here, dari agama == dari iman
 * orang yg bertauhid mungkin masuk neraka dulu sblm surga
 * iman dalam hari bertingkat2, ada yang sebesar biji sawi
 
+## 23: abu said al kudri
+* iman seseorang bertingkat2
+* kadar agama orang bertingkat2
+
+# ch 16: malu adalah bagian dari iman
+## 24: salim bin abdullah
+* rasa malu adalah bagian dari iman
+* malu untuk dicerca di dunia dan di permalukan di akhirat
+
+# ch 17: at-taubah (9): 5
+## 25: ibn umar
+* perangi orang sampai mereka:
+  * bertaubat dari kekufuran,
+  * mendirikan solat,
+  * membayar zakat,
+* jika sudah melaksananakn ketiganya maka darah dan harta mereka terjaga
+* orang non-muslim (misal: yahudi, nasrani, dan orang kafir yg lain) membayar jizyah jika tinggal di negara islam
+
+# ch 18: orang yang mengatakan: iman adalah perbuatan
+* az-zukruf (43): 72
+* al-hijr (15): 92 - 93
+* as-shafaat (37): 61
+* masuk surga dgn sebab amal, tetapi
+  amal bukan bayaranya karena kita masuk surga karena rahmat Allah
+
+## 26: abu hurairah
+* amal yang paling afdhol
+  * iman kepada Allah dan rasulnya (amal adakah bagian dari iman)
+  * kemudian, jihad di jalan Allah,
+  * kemudian, haji yang mabrur (yg diterima Allah)
+
+# ch 19: keislaman yang disebabkan sikap menyerah atau takut dibunuh adalah keislaman yang tidak sebenarnya
+* al-hujaraat (49): 14
+* ali-imran (3): 19
+
+## 27: Saad bin abi waqas
+* term `islam` va `iman`
+  * jika disebutkan dalam satu konteks maka maknanya berbeda,
+    * `islam`: amal lahir (orang muslim)
+    * `iman`: amal bathin (hanya Allah yang tahu) (orang mukmin, insyaAllah)
+    * iman lebih tinggi derajatnya daripada islam
+  * jika disebutkan masing2 (secara terpisah) maka maknanya sama (saling mewakili)
+  * contoh lain: `taqwa` vs `berbuat kebajikan`, `miskin` vs `fakir`
+* menasehati secara diam2 lebih baik drpd secara terang2
+
 next
-120/440
-Kajian Kitab Syarah Kitab Shahih Bukhari Kajian Ke-10 - Usta
+138/440
+Kajian Kitab Syarah Kitab Shahih Bukhari Kajian Ke-11 - Usta

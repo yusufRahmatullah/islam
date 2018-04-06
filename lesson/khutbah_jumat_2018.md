@@ -1,5 +1,13 @@
 # khutbah_jumat_2018
 
+## 20180406 @UQ: ethics
+* the purpose of life:
+  * https://rumaysho.com/342-untuk-apa-kita-diciptakan-di-dunia-ini.html
+  * https://almanhaj.or.id/1923-tujuan-hidup-seorang-muslim.html
+* aklaq kepada Allah: 
+  tauhid, taqwa, tawakkal, khauf, waraq, mahabbah, raja, syukur, muhasabah, ridho, ikhlas, syukur
+  * [Prof. Yunahar Ilyas: Kuliah Akhlak](http://thesis.umy.ac.id/datapubliknonthesis/EBUMY2061.pdf)
+
 ## 20180330 @UQ: the sweetness of Iman
 * http://kisahmuslim.com/700-kisah-perjuangan-bilal-bin-rabah-radhiallahu-anhu.html
 * https://www.youtube.com/watch?v=oAyW4_waoy8

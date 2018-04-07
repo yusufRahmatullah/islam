@@ -220,6 +220,47 @@ here, dari agama == dari iman
   * contoh lain: `taqwa` vs `berbuat kebajikan`, `miskin` vs `fakir`
 * menasehati secara diam2 lebih baik drpd secara terang2
 
+# ch 20: menyebarkan salam termasuk bagian dari iman
+* mengucapkan salam: sikap tawadu', menghargai orang yang diberi salam
+* berinfak di kala sempit: zuhud dunia
+
+## 28: abdullah bin amr
+* ulangan hadist 12, dgn guru yang berbeda, faedah tambahan/lain
+* islam yang lebih utama
+  * memberi makan dan mengucapkan salam kepada yg dikenal maupun tidak
+
+# ch 21: durhaka kepada suami adalah kufur (mengingkari, durhaka)
+## 29: ibn abbas
+* kebanyakan penghuni neraka adalah wanita
+  * karena mereka kufur kecil, yaitu ingkar kepada kabaikan suami
+  * bukan kufur besar: kufur kepada Allah (yg mengeluarkan dari Islam)
+  * contoh kufur kecil: berbohong, mengingkari janji, membunuh seorang,
+    berhukum dgn selain hukum Allah,
+    (semua kufur adalah dosa besar, berbahaya, tidak semua maksiat dinamakan kufur)
+* nabi pernah melihar surga dan neraka,
+  diperlihatkan masa depan tentang penghuni neraka dan surga
+* bersedekah sebagai salah satu sebab dijauhkan dari neraka
+* jika sudah menikah, maka wanita harus lebih taat kepada suami daripada orangtuanya
+  dalam hal rumah tangga
+* kesolehan wanita bisa diukur dari ketaatan terhadap suaminya
+
+# ch 22: maksiat adalah perbuatan jahiliyyah, pelakunya tidak dianggap kafir, kecuali jika syirik
+* an-nisaa 4:48
+
+## 30:
+* peperangan antara Ali dan Mu'awiyah, hanya sedikit sahabat yg ikut, sebagian besar sahabat menghindar
+* membunuh adalah dosa besar, tetapi tidak mengeluarkan dari islam
+* dua orang mukmin yang saling berusaha membunuh, maka keduanya diancam dgn neraka;
+  al-hujarat 49: 9
+
+## 31:
+* sesungguhnya budak kalian adalah saudara kalian
+  * berilah makan, pakaian apa yang kalian makan/pakai
+  * jangan diberi pekerjaan di luar kemampuan mereka,
+    jika mereka terpaksa mengerjakannya maka bantulah mereka
+
+<!--
 next
-138/440
-Kajian Kitab Syarah Kitab Shahih Bukhari Kajian Ke-11 - Usta
+148/440
+Kajian Kitab Syarah Kitab Shahih Bukhari Kajian Ke-12 - Usta
+ -->

@@ -1,5 +1,14 @@
 # khutbah_jumat_2018
 
+## 20180413 @UQ: riba, divorce
+* crisis: suicide, divorce rate
+* https://rumaysho.com/15302-riba-akan-hancur-sedekah-akan-subur.html
+  * Allah memusnahkan riba dan menyuburkan sedekah; QS. Al-Baqarah: 276
+* https://www.youtube.com/watch?v=fekWnEbxHJk
+* https://www.facebook.com/kpmimedan/videos/1139379346174332/
+* https://bimbinganislam.com/tentang-hak-asuh-anak-setelah-perceraian/
+* https://almanhaj.or.id/2556-hak-pengasuhan-anak-dalam-islam-demi-kebaikan-anak.html
+
 ## 20180406 @UQ: ethics
 * the purpose of life:
   * https://rumaysho.com/342-untuk-apa-kita-diciptakan-di-dunia-ini.html

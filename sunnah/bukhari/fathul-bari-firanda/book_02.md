@@ -259,8 +259,71 @@ here, dari agama == dari iman
   * jangan diberi pekerjaan di luar kemampuan mereka,
     jika mereka terpaksa mengerjakannya maka bantulah mereka
 
+# ch 23: kezaliman yang paling besar
+* kekufuran:
+  * kufur akbar: mengeluarkan dari islam
+  * kufur ashghor(kecil): tidak mengeluarkan dari islam
+* kedzaliman itu bertingkat2
+  * kedazliman akbar
+    * eg: kesyirikan
+  * kedazliman ashghor
+
+## 32:
+* kesyirikan adalah kedzaliman yang besar; luqmaan (31): 13
+* sahabat: siapa diantara kita yang tidak berbuat dzalim; in response to al-an'aam (6): 83
+* kedzaliman
+  * mendzolimi diri sendiri
+  * mendzolimi orang lain
+  * kedzholiman berkaitan dgn tauhid: syirik
+
+# ch 24: tanda orang munafik
+## 33: abu hurairah
+* 3 tanda orang munafik:
+  * jika berbicara, selalu bohong
+  * jika berjanji, selalu mengingkari
+    * saat berjanji sudah berniat mengingkari janji
+  * jika diberi amanat, selalu berkhianat
+
+## 34: abdullah bin 'amru
+* 4 perangai orang munafik
+  * jika berbicara, bohong
+  * jika diberi amanat, berkhianat
+  * jika membuat perjanjian, berkhianat
+  * jika bersengketa, fajir (tidak terpuji, mengumpat, mencaci maki)
+* kemunafikan
+  * nifak akbar (nifaq keyakinan):
+    kekufuran namun menampakkan iman, eg orang munafik di zaman nabi
+  * nifak ashghor (nifaq amali):
+    kelima tanda diatas termasuk nifak ashghor
+
+# ch 25: melaksanakan shalat (beribadah) pada lailatul qadar adalah bagian dari iman
+## 35: abu hurairah
+* barangsiapa bangun d malam lailatul qadr dgn keimanan dan pengharapan (lebih dari ikhlas),
+  maka diampuni dosa yg lalu (ijma ulama: diampuni dosa2 kecil)
+* bangun bermakna, ada 3 pendapat
+  * solat terawih (berjamaah)
+  * solat malam (tdk harus terawih)
+  * bangun untuk beribadah, tdk harus solat, bisa berdzikir, baca quran
+
+# ch 26: jihad adalah bagian dari iman
+## 36: abu hurairah
+* Allah menjamin orang yang berjihad (karena Allah dan rasulnya), akan mendapat
+  * pahala
+  * harta rampasan perang
+  * masuk surga
+* hadist: jihad dapat ghonimah maka dia telah menyegerakan 2/3 pahala
+  * pahala jihad ada 2: pahala perang dan pahala ghonimah
+* boleh berniat untuk kabaikan duniawi, sebagai tambahan terhadap niat untuk kehidupan akhirat;
+  double niat, akhirat dan dunia
+  * eg: obatilah orang sakit dgn bersedekah; dgn niat kesembuhan
+  * eg: barangsiapa ingin ditambahkan rejeki dan umur, maka bersilaturahmi
+
+# ch 27, 28: mengerjakan puasa ramadhan dgn ikhlas adalah bagian dari iman
+## 38:
+* berpuasa di bulan ramadhan karena iman dan ikhlas maka dosanya yang telah lalu akan diampuninya
+
 <!--
 next
-148/440
-Kajian Kitab Syarah Kitab Shahih Bukhari Kajian Ke-12 - Usta
+159/440
+Kajian Kitab Syarah Kitab Shahih Bukhari Kajian Ke-13 - Usta
  -->

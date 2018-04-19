@@ -19,8 +19,17 @@ yang memasukkan ke dalam neraka saqar:
 * peringatan akan hari kiamat, hari yang sulit (bagi orang kafir)
 
 ## 74: 11 - 30
+* ancaman terhadap orang jahat yg telah dikarunnia nikmat dunia, lalu
+  dia ingkar thd nikmat, kufur dan ingkat terhadap ayat2 Allah
+  * adzab yang kekal
+  * masuk ke neraka saqar:
+    yg memakan, membakar daging, kulit, urat2; manusia tidak mati dan tidak hidup;
+    dgn 19 malaikat zabaniyah
+
+## 74: 31 - 37
+TODO
 
 <!-- TODO
 Tafsir Ibnu Katsir 8.3.pdf
-106/120
+109/120
  -->

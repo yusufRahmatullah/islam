@@ -1,5 +1,9 @@
 # khutbah_jumat_2018
 
+## 20180420 @UQ: welcoming ramadhan
+* quran is revealed in the month of ramadhan
+* need to prepare for ramadhan
+
 ## 20180413 @UQ: riba, divorce
 * crisis: suicide, divorce rate
 * https://rumaysho.com/15302-riba-akan-hancur-sedekah-akan-subur.html

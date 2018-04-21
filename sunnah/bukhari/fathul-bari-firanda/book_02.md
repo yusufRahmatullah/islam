@@ -338,10 +338,41 @@ here, dari agama == dari iman
 * beribadalah pada pagi (setelah subuh sampai terbit matahari), petang, sebagian malam
 
 # ch 30: solat bagian dari iman
+* al-baqarah (2): 143
+
+## 40:
+* solah adalah bagian dari iman
+* pertama kali shalat di madinah, menghadap baitul maqdis, selama 16/17 bulan
+* kemudian turun firman Allah untuk mengubah kiblat ke kakbah di masjidil haram
+* kakbah dibangun oleh nabi ibrahim
+* nabi ibrahim
+  * nabi ismail
+    * nabi muhammad
+  * nabi ishaq
+    * nabi yaqub
+      * nabi yusuf + 11 orang (12 bani israil)
+        * nabi musa
+        * nabi isa
+* pertama kali shalat menghadap kakbah di masjid qiblatain, rakaat 3 dan 4 di solat dzuhur
+* al-baqarah: 145
+
+# ch 31: indahnya islam seseorang
+
+## 41: abu said al kudri
+* jika seorang hamba masuk islam, dan bagus islamnya, maka Allah menghapus seluruh dosa
+  sebelum ia masuk islam, kemudian baru dimulai qisas (perhitungan baru, dimulai catatan keburukan dan kabaikan)
+* orang yg tadinya kafir dan masuk islam,
+  * maka dihapus seluruh dosanya dulu saat ia masih kafir
+  * kebaikannya dulu
+    * ibadah (jumhur ulama: tidak dihitung, karena ibadah kesyirikan, bukan kepada Allah)
+      * puasa, iktikaf, berdoa, haji, umrah
+    * kebaikan (dihitung (tidak dihapus, bernilai pahala setelah ia masuk islam))
+      * silaturahmi, beri makan orang miskin, sedekah
+* kebaikan dicatat dgn 10 - 700 kali lipat
+* kejahatan dicatat 1 kali
 
 <!--
 next
-159/440
-Kajian Kitab Syarah Kitab Shahih Bukhari Kajian Ke-13 - Usta
-27: 47
+174/440
+Kajian Kitab Syarah Kitab Shahih Bukhari Kajian Ke-14 - Usta
  -->

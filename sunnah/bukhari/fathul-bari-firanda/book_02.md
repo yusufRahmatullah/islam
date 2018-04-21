@@ -322,8 +322,26 @@ here, dari agama == dari iman
 ## 38:
 * berpuasa di bulan ramadhan karena iman dan ikhlas maka dosanya yang telah lalu akan diampuninya
 
+# ch 29: agama itu mudah
+* hadist (shahih tetapi tidak memenuhi kriteria shahih bukhari):
+  agama yang paling dicintai oleh ALlah adalah yang hanif (tauhid, jauh dari kesyirikan) dan mudah
+
+## 39: abu hurairah
+* agama itu mudah, tetapi tidak dimudah2kan
+* sesungguhnya Allah itu suka keringannan (ruksyoh) yang Ia berikan di ambil,
+  sebagaimana Allah suka dikerjakan perintahNya
+* rasullullah selalu memilih ibadah yang paling ringan,
+  * mengqasar shalat saat safar, shalat 2 rakaat sebelum subuh yang ringan (tidak panjang),
+  * haji tamatuk (yang lebih ringan, umrah dulu kemudian haji) lebih afdal daripada haji ifrad,
+  * salah di rumah saat hujan
+* berusahalah tepat, mendekati ketepatan dalam beragama, tidak lebih, tidak kurang
+* beribadalah pada pagi (setelah subuh sampai terbit matahari), petang, sebagian malam
+
+# ch 30: solat bagian dari iman
+
 <!--
 next
 159/440
 Kajian Kitab Syarah Kitab Shahih Bukhari Kajian Ke-13 - Usta
+27: 47
  -->

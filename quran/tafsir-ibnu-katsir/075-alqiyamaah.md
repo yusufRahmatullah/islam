@@ -11,7 +11,16 @@
   * manusia menjadi saksi atas dirinya sendiri (melalui anggota tubuhnya); al-israa: 14
 
 ## 75: 16 - 25
+* perintah Allah kepada rasulullah;
+  jika malaikat datang membawa wahyu maka hendaklah dia mendengarkannya;
+  Allah menjamin untuk mengumpulkannya ke dalam hatinya kemudian penjelasan maknanya;
+  thaahaa: 14
+* orang mukmin akan melihat Rabbnya dgn wajah berseri2
+* orang kafir berwajah muram karena mereka yakin akan ditimpa malapetaka
+
+## 75: 26 - 40
 <!-- TODO
-Tafsir Ibnu Katsir 8.3.pdf
-119/120
+Tafsir Ibnu Katsir 8.4.pdf
+3/120
  -->
+

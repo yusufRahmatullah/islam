@@ -19,8 +19,10 @@
 * orang kafir berwajah muram karena mereka yakin akan ditimpa malapetaka
 
 ## 75: 26 - 40
-<!-- TODO
-Tafsir Ibnu Katsir 8.4.pdf
-3/120
- -->
-
+* ancaman terhadap orang kafir
+  * yang mendustakan rasul dan quran
+  * tidak mengerjakan sholat
+  * menyombongkan diri
+* pada akhirnya, semua akan kembali kepada Allah; al-anaam: 62
+  * Allah menghidupkan kembali makhluknya pada hari kiamat,
+    untuk dimintai pertanggungjawaban terhadap perbuatannya di dunia

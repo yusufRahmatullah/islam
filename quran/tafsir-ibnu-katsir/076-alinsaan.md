@@ -38,11 +38,22 @@
   mendapat kenikmatan 10 kali lipat kenikmatan dunia
 
 ## 76: 23 - 31
-<!-- TODO
-Tafsir Ibnu Katsir 8.4.pdf
-15/120
- -->
-
-Barangsiapa yang Allah beri petunjuk, maka tidak ada yang dapat menyesatkannya,
-barangsiapa yang Allah sesatkan, maka tidak ada yang dapat memberinya petunjuk.
-
+* karunia Allah kepada rasul:
+  * diturunkannya quran secara berangsur2
+* perintah untuk
+  * bersabar dalam melaksanakann ketetapannnya
+  * jangan menuruti orang kafir dan munafik;
+    yang menyukai kehidupan dunia, lupa akhirat;
+    jika Allah berkehendak dapat saja dimusnahkan dan diganti; an-nisaa: 133
+  * bertawakkallah kepada Allah
+  * sebutlah nama Rabbmu pada pagi dan petang
+  * sujud dan bertasbihlah pada bagian yang panjang di malam hari; al-israa: 79
+  * barangsiapa ingin kebaikan maka ambillah petunjuk dari quran;
+    * Allah mengetahu siapa yang berhak mendapat petunjuk sehingga Allah akan memberi kemudahan baginya,
+      dan mengetahui siapa yang berhak untuk disimpangkan;
+    * Allah memberi petunjuk kepada siapa yang Dia kehendaki dan
+      menyesatkan siapa yang Dia kehendaki;
+      tidak ada seorang manusia pun yang bisa memberi petunjuk
+      jika Allah memberi nya petunjuk;
+    * Barangsiapa yang Allah beri petunjuk, maka tidak ada yang dapat menyesatkannya,
+     barangsiapa yang Allah sesatkan, maka tidak ada yang dapat memberinya petunjuk.

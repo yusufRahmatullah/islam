@@ -1,5 +1,10 @@
 # khutbah_jumat_2018
 
+## 20180427 @UQ: relationship with other people
+* https://haditsrasulullah.com/bukhari-6605-setiap-kalian-adalah-pemimpin-yang-akan-dimintai-pertanggung-jawaban/
+* https://almanhaj.or.id/3539-haram-berbuat-zhalim-1.html
+* https://www.eramuslim.com/hadits/hadits-pahala-yang-hilang-karena-diambil-orang.htm#.WuKktIhuaUk
+
 ## 20180420 @UQ: welcoming ramadhan
 * quran is revealed in the month of ramadhan
 * need to prepare for ramadhan

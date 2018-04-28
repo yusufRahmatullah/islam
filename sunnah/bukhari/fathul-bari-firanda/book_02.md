@@ -371,8 +371,49 @@ here, dari agama == dari iman
 * kebaikan dicatat dgn 10 - 700 kali lipat
 * kejahatan dicatat 1 kali
 
+# ch 32: agama yang paling dicintai Allah adalah agama yang paling kontinu pelakunya
+## 43: aisyiah
+* Allah tidak akan bosan untuk memberi pahala, hingga kamu sendiri menjadi bosan/malas
+* agama yang paling disukai Allah adalah yang dilakukan secara tetap dan teratur
+* hendaklah kalian beramal yang kaliam mampui sehingga terus menerus
+
+# ch 33: bertambah dan berkurangnya iman
+* al-kahfi: 13
+* al-maidah: 3
+  * barangsiapa yang tidak menjalankan agama yang telah sempurna maka imannya berkurang
+
+## 44: anas bin malik
+* akan keluar dari neraka jahanam:
+  * orang yg mengucapkan lailahaillah dan dalam hatinya terdapat iman sebesar syariah
+  * orang yg mengucapkan lailahaillah dan dalam hatinya terdapat iman sebesar burrah
+  * orang yg mengucapkan lailahaillah dan dalam hatinya terdapat iman sebesar dzarrah (semut kecil)
+
+## 45: umar bin khattab
+* almaidah:3 turun pada 10 H, hari jumat, di arafah, hari arafah (9 Zulhijah)
+  * tapi hari ini bukan hari raya dalam islam
+* hari raya tahunan
+  * idul-fitri: setelah puasa ramadhan
+  * idul-adha: setelah manasik haji
+* hari raya mingguan
+  * hari jumat: setelah solat 5 waktu sepekan
+
+# ch 34: zakat adalah sebagian dari islam
+## 46: thalhal bin ubaidillah
+* perihal islam
+  * shalat 5 waktu
+  * puasa ramadhan
+  * zakat
+* tidak ada solat yang wajib (yg berulang sehari semalam) kecuali solat 5 waktu
+
+# ch 35: melayat jenazah adalah bagian dari iman
+## 47: abu hurairah
+* keutamaan mengikuti jenazah orang muslim
+* yang menyolatkan: pahala 1 qirath (1 gunung uhud)
+* yang menyolatkan sampai menguburkannya: pahala 2 qirath (2 gunung uhud)
+* tabiin: orang yang bertemu dgn sahabat
+
 <!--
 next
-174/440
-Kajian Kitab Syarah Kitab Shahih Bukhari Kajian Ke-14 - Usta
+193/440
+Kajian Kitab Syarah Kitab Shahih Bukhari Kajian Ke-15 - Usta
  -->

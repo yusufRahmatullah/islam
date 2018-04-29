@@ -30,13 +30,16 @@ keimanan yang tertanam di dalam hati (oleh Allah),
 al-qashash: 56, al-kahfi: 17
 
 ## 2: 3
-seringakali ALlah mempersandingkan antara
+seringkali Allah mempersandingkan antara
 * shalat: hak Allah
 * infak (zakat): perbuatan baik kepada sesama makhluk:
   keluarga, kerabat, orang terdekat, ...
 
 ## 2: 4
-next: 71/152
+<!-- TODO
+Tafsir Ibnu Katsir 1 a.pdf
+88/152
+ -->
 
 ## misc
 iman itu adalah kebenaran
@@ -60,6 +63,3 @@ berbagai sifat kemunafikan ada di ayat yang diturunkan di madinah,
 karena tidak ada kemunafikan di mekkah,
 orang muhahirin juga tidak ada yang munafik, mereka berhijrah ikhlas
 
-next:
-Jilid 1a
-88/152

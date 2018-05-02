@@ -82,7 +82,16 @@ al-qashash: 56, al-kahfi: 17
   * orang muhahirin juga tidak ada yang munafik, mereka berhijrah ikhlas
 
 ## 2: 10
+* orang munafik: memiliki keraguan, lalu Allah menambah keraguan tsb
+* hadist:
+  rasul diperintahkan memerangi manusia sampai mereka bersaksi bahwa
+  tidak ada Ilah selain Allah dan Muhammad adalah utusan Allah,
+  apabila mereka mengatakannya maka darah dan hartanya mendapat perlindungan dariku
+  kecuali dengan hak islam dan perhitungan mereka berada di tangan Allah
+* al-hadiid: 14
+
+## 2: 11 - 12
 <!-- TODO
 Tafsir Ibnu Katsir 1 a.pdf
-82/152
+84/152
  -->

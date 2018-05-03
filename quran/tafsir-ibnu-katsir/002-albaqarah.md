@@ -91,6 +91,17 @@ al-qashash: 56, al-kahfi: 17
 * al-hadiid: 14
 
 ## 2: 11 - 12
+* orang munafik tidak sadar, tidak mengakui bahwa mereka berbuat kerusakan:
+  kekufuran dan kemaksiatan kepada Allah, termasuk mengangkat orang kafir sbg
+  wali2 (pelindung2), al-anfal: 73, an-nisaa: 144 - 145,
+  (mereka kira mereka berbuat perbaikan)
+
+## 2: 13
+* perintah untuk beriman kepada orang munafik
+* orang munafik lah yang bodoh karena mereka tidak sadar/tahu bahwa
+  merekalah yang berada dalam kebodohan dan kesesatan
+
+## 2: 14 - 15
 <!-- TODO
 Tafsir Ibnu Katsir 1 a.pdf
 84/152

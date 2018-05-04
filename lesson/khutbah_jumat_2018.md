@@ -1,5 +1,15 @@
 # khutbah_jumat_2018
 
+## 20180504 @UQ: ramadhan
+* https://muslim.or.id/6644-ramadhan-tiba-pintu-pintu-surga-terbuka.html
+* https://muslimah.or.id/5969-apa-maksud-dari-imanan-wahtisaban.html
+* https://muslim.or.id/1264-menghidupkan-malam-ramadhan-dengan-shalat-tarawih.html
+* https://rumaysho.com/11191-ikutilah-imam-shalat-tarawih-23-rakaat-hingga-selesai.html
+* https://rumaysho.com/3488-shalat-tarawih-23-raka-at-dengan-ngebut.html
+* https://konsultasisyariah.com/22930-keutamaan-shalat-tarawih.html
+* https://www.youtube.com/watch?v=662Y5Rr0gMw
+* https://quran.com/97
+
 ## 20180427 @UQ: relationship with other people
 * https://haditsrasulullah.com/bukhari-6605-setiap-kalian-adalah-pemimpin-yang-akan-dimintai-pertanggung-jawaban/
 * https://almanhaj.or.id/3539-haram-berbuat-zhalim-1.html

@@ -412,8 +412,36 @@ here, dari agama == dari iman
 * yang menyolatkan sampai menguburkannya: pahala 2 qirath (2 gunung uhud)
 * tabiin: orang yang bertemu dgn sahabat
 
+# ch 36: kekhawatiran seorang muslim jika amalnya hilang tanda disadari
+* ciri2 orang beriman: berhenti dari maksiat; ali-imraan: 135
+* para sahabat sangat khawatir terkena kemunafikan (nifak) kecil
+* kebaikan2 bisa menggugurkan dosa2, dan sebaliknya:
+  keburukan bisa menggugurkan kebaikan
+  * sedekah bisa digugurkan dgn menceritakan/mengungkit-ungkit/menyakiti hati
+* raja' dan khauf
+
+## 48:
+* memaki/mencela seorang muslim adalah kedurhakaan (fasik)
+* membunuhnya adalah kekufuran
+* al-baqarah: 85
+
+## 49: ubadah bin shamit
+* pertikaian menghilangkan keberkahan
+* syaitan hadir dalam kemarahan/pertengkaran
+
+# ch 37: pertanyaan jibril kepada nabi
+* jibril datang untuk mengajarkan kepadamu agamamu
+* ali-imraan: 85:
+  agamanya yang diridhoi Allah adalah islam
+
+## 50:
+* apa arti iman
+* apa arti islam
+* apa arti ikhsan
+* kapankah hari kiamat
+
 <!--
 next
-193/440
-Kajian Kitab Syarah Kitab Shahih Bukhari Kajian Ke-15 - Usta
+222/440
+Kajian Kitab Syarah Kitab Shahih Bukhari Kajian Ke-16 - Usta
  -->

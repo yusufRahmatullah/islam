@@ -102,7 +102,18 @@ al-qashash: 56, al-kahfi: 17
   merekalah yang berada dalam kebodohan dan kesesatan
 
 ## 2: 14 - 15
+* orang2 munafik yang berolok-olok,
+  bertaqiyyah: menyembunyikan jati diri sebenarnya, menipu orang yang bukan kelompoknya,
+  sbg perlindungan dari kerusakan dan kerugian
+* Allah akan membiarkan orang munafik dalam kesesatan
+* al-hadiid: 13; ali-imraan: 54, 178; an-nisaa: 142;
+  at-taubah: 67, 79; al-anaam: 44, 45, 110
+* Allah mahasuci dari perbuatan makar, tipu daya, kebohongan,
+  sedangkan yang dilakukan Nya atas dasar hukuman pembalasan secara adil,
+  maka hal itu tidak mustahil bagi Nya
+
+## 2: 16
 <!-- TODO
 Tafsir Ibnu Katsir 1 a.pdf
-84/152
+92/152
  -->

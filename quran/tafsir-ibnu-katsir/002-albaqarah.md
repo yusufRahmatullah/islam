@@ -113,7 +113,15 @@ al-qashash: 56, al-kahfi: 17
   maka hal itu tidak mustahil bagi Nya
 
 ## 2: 16
+* orang munafik mengambil kesesatan dan meninggalkan petunjuk
+* al-munanfiqun: 3
+
+## 2: 17 - 18
+* Allah membiarkan mereka dalam kegelapan, kekufuran
+* al-hajj: 46
+
+## 2: 19 - 20
 <!-- TODO
 Tafsir Ibnu Katsir 1 a.pdf
-92/152
+95/152
  -->

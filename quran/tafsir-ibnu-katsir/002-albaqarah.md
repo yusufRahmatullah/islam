@@ -121,7 +121,20 @@ al-qashash: 56, al-kahfi: 17
 * al-hajj: 46
 
 ## 2: 19 - 20
+* orang munafik:
+  sewaktu2 tampak kebenaran bagi mereka dan pada saat lain ragu
+* pada hari akhirat:
+  manusia diberi cahaya sesuai dgn keimanannya
+  * al-hadiid: 13; at-tahrim: 8
+
+## 2: 21 - 22
+* Allah yang  menciptakan dan memberi rizki kepada makhluknya
+* beribadahlah kepada rabbmu (bertauhid)
+* esa kan lah rabbmu
+* jangan menyekutukan rabbmu dgn tandingan2 lain (syirik)
+
+## 2: 23 - 24
 <!-- TODO
 Tafsir Ibnu Katsir 1 a.pdf
-95/152
+105/152
  -->

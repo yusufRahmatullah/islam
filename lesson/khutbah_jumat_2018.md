@@ -1,5 +1,12 @@
 # khutbah_jumat_2018
 
+## 20180504 @UQ: ramadhan and quran
+* https://almanhaj.or.id/3956-ramadhan-dan-turunnya-al-quran.html
+* http://wahdah.or.id/ramadhan-bulan-diturunkannya-al-quran/
+* https://muslim.or.id/21887-bulan-al-quran.html
+* https://tarjih.or.id/hisab-dan-rukyat-dalam-prespektif-tarjih-muhammadiyah/
+* https://tarjih.or.id/mengapa-muhammadiyah-memakai-hisab/
+
 ## 20180504 @UQ: ramadhan
 * https://muslim.or.id/6644-ramadhan-tiba-pintu-pintu-surga-terbuka.html
 * https://muslimah.or.id/5969-apa-maksud-dari-imanan-wahtisaban.html

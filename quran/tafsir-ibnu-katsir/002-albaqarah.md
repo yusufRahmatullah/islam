@@ -134,7 +134,20 @@ al-qashash: 56, al-kahfi: 17
 * jangan menyekutukan rabbmu dgn tandingan2 lain (syirik)
 
 ## 2: 23 - 24
+* Allah menetapkan kenabian thd nabi muhammad
+* jika kalian ragu, maka (tantangan dari Allah) untuk membuat satu surat lalu bandingkan;
+  al-qashash: 49; al-israa: 88; huud: 13; yunus: 37-38;
+* quran adalah kitab yang ayat2nya tersusun rapi dan terperinci;
+  huud: 1; al-anaam: 15
+* surga dan neraka sudah ada sekarang ini
+
+## 2: 25
+* berita gembira bagi orang2 beriman
+  * surga dgn buah2, isteri2, dan kekal didalamnya
+* salah satu pola quran: penyebutan sesuatu kemudian kebalikannya
+
+## 2: 26 - 27
 <!-- TODO
 Tafsir Ibnu Katsir 1 a.pdf
-105/152
+113/152
  -->

@@ -440,8 +440,49 @@ here, dari agama == dari iman
 * apa arti ikhsan
 * kapankah hari kiamat
 
-<!--
-next
-222/440
-Kajian Kitab Syarah Kitab Shahih Bukhari Kajian Ke-16 - Usta
- -->
+## 51:
+* herokius bertanya kepada abu sofyan tentang muhammad,
+  pada hadist ini herokius menyimpulkan jawaban dari abu sofyan
+
+# ch 39: keutamaan orang yang memelihara agamanya
+## 52: nu'man bin basyir
+* telah jelas perkara yang halal dan haram;
+  diantara keduanya adalah yang ragu (syubhat, tidak jelas)
+* barangsiapa menjauhi syubhat maka dia telah membersihkan agamanya
+* barangsiapa hati nya baik, maka baik pula semua tubuhnya;
+  apabila hati itu rusak, maka binasalah seluruh tubuhnya
+* poros agama dgn tiga hadist karena seorang harus beramal soleh (beribadah)
+  * hadist 1: niat yang lurus ... (innamal a'malu bin niat)
+  * hadist 2: telah jelas perkara yang halal dan haram...
+  * hadist 3: barang siapa yang mengadakan perkara baru dalam agama maka tertolak, ...meninggalkan bidah...
+
+# ch 40: menunaukan 1/5 dari harta rampasan perang adalah bagian dari iman
+* 1/5 diserahkan untuk urusan agama (baitul maal)
+
+## 52: abu jamrah
+* nabi memerintahkan 4 perkara
+  * solat
+  * zakat
+  * puasa
+  * 1/5 harta rampasan perang
+* tidak semua yang ada alkoholnya diharamkan
+* yg diharamkan adalah yang memabukkan; tape halal karena tidak memabukkan
+
+# ch 41: amalan tergantung niat dan ingin mendapat pahala
+* al-isra: 85
+
+## 54:
+* setiap perbuatan syariaah tergantung niat dan hisbah (keinginan untuk mendapatkan pahala)
+
+## 55:
+* pentingnya niat karena Allah agar mendaptkan pahala
+
+# ch 42: sabda rasulullah
+* agama adalah nasehat
+
+## 57:
+* lakukanlah yg terbaik bagi Allah, bagi sesama manusia
+
+## 58:
+* berbuat yang terbaik kepada kaum muslim
+* nasehat kepada orang muslim dan non-muslim

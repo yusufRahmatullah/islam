@@ -147,7 +147,20 @@ al-qashash: 56, al-kahfi: 17
 * salah satu pola quran: penyebutan sesuatu kemudian kebalikannya
 
 ## 2: 26 - 27
+* orang2 beriman yakin bahwa perumpamaan tersebut berasal dari Rabb nya
+* dgn perumpamaan tersebut, banyak yang diberi petunjuk dan banyak pula yang disesatkan
+  * tidak ada yang disesatkan Allah kecuali orang fasik(== munafik);
+    orang fasik: orang yang keluar dari ketaatan
+* al-ankabut: 43:
+  Allah membuat perumpamaan untuk manusia;
+  tiada yg dapat memahaminya kecuali yang berilmu
+
+## 2: 28
+* Allah yang menghidupkan dan mematikan makhluknya
+* al-mu'min: 11
+
+## 2: 28
 <!-- TODO
 Tafsir Ibnu Katsir 1 a.pdf
-113/152
+118/152
  -->

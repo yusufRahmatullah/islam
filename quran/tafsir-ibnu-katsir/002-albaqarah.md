@@ -159,8 +159,23 @@ al-qashash: 56, al-kahfi: 17
 * Allah yang menghidupkan dan mematikan makhluknya
 * al-mu'min: 11
 
-## 2: 28
+## 2: 29
+* penciptaan langit dan bumi oleh Allah
+* Allah menciptakan bumi sebelum langit; fusshilat: 11
+
+## 2: 30
+* anak adam sebagai khalifah di bumi; al-an'aam:165, al-zukhruf: 60
+* pengangkatan khalifah/imamah/pemimpin
+  * melalui nash, eg abu bakar
+  * melalui penunjukan pada akhir jabaran, eg. umar bin khattab
+  * melalui musyawarah orang2 shalih
+  * etc
+* khalifah harus
+  * laki2, baligh, merdeka, etc
+  * dari suku Quraisy
+
+## 3: 31 - 33
 <!-- TODO
 Tafsir Ibnu Katsir 1 a.pdf
-118/152
+124/152
  -->

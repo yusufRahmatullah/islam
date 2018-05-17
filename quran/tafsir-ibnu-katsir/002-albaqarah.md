@@ -174,8 +174,45 @@ al-qashash: 56, al-kahfi: 17
   * laki2, baligh, merdeka, etc
   * dari suku Quraisy
 
-## 3: 31 - 33
+## 2: 31 - 33
+* Allah menyebutkan kemuliaan Adam atas para malaikat
+* Allah mengajarkan kepada Adam nama2 benda
+
+## 2: 34
+* Allah memerintahkan malaikat untuk sujud kepada Adam
+* Iblis tidak sujud (melanggar perintah Allah)
+* al-hijr: 30
+
+## 2: 35 - 36
+* perintah Allah kepada Adam untuk tinggal di surga
+* Hawa diciptakan dari tulang rusuk Adam dari sisi sebelah kiri
+* ujian untuk tidak mendekati pohon tertentu
+* setelah melanggar larangan, Adam diturunkan ke bumi
+* hadist: sebaik2 hari adalah jumat, dimana Adam diciptakan,
+  dimasukkan dan dikeluarkan dari surga
+
+## 2: 37
+* Allah menerima taubat Adam
+* Al-A'raaf: 23
+
+## 2: 38 - 39
+* Allah mengabarkan ke Adam bahwa ia akan menurunkan para rasul yg membawa petunjuk dariNya
+* orang kafir kekal di neraka
+
+## 2: 40 - 41
+* perintah Allah kepada bani israil (keturunan yakub) untuk memeluk agama islam;
+  al-maidah: 12
+* nikmat Allah kepada bani israil, al-maidah: 20
+  * manna, salwa
+  * selamat dari perbudakan firaun
+
+## 2: 42 - 43
+* Allah melarang orang Yahudi dari kesengajaan mencampuradukkan yang hak dan bathil,
+  serta menyembunyikan kebenaran dan menampakkan kebathilan
+* jadilah kalian bersama orang2 mukmin dalam berbuat yg terbaik, eg sholat
+
+## 2: 44
 <!-- TODO
 Tafsir Ibnu Katsir 1 a.pdf
-124/152
+141/152
  -->

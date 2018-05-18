@@ -3,6 +3,7 @@
 * shahih muslim, 
 * abu dawud, 
 * tirmidzi, 
+  * https://archive.org/details/JamiAtTirmidhiVol.632913956EnglishArabic
 * an nasai, 
 * ibnu majah;
 * [Muwatta Malik](https://sunnah.com/malik)

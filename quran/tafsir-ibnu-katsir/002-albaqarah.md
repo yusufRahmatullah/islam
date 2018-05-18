@@ -212,7 +212,27 @@ al-qashash: 56, al-kahfi: 17
 * jadilah kalian bersama orang2 mukmin dalam berbuat yg terbaik, eg sholat
 
 ## 2: 44
+* yang wajib dan lebih patut adalah mengerjakan kebajikan bersama orang2 yg ia perintahkan
+  dan tidak menyelisihi mereka
+* amar ma'ruf: menyuruh berbuat baik
+
+## 2: 45 - 46
+* sabar dan solat sebagai penolong
+  * berat kecuali bagi orang yang khusyuk:
+    orang yg meyakini bahwa mereka akan menemui Rabbnya dan akan kembali kepadaNya
+
+## 2: 47
+* peringatan kepada bani israil akan nikmat Allah,
+  keutamaan mereka, yaitu pengutusan rasul2 dari kalangan merek sendiri dan kitab2
+* al-maaidah: 20
+* umat islam lebih unggul drpd bani israil; ali-imram: 110
+
+## 2: 48
+* Allah tidak akan menerima tebusan dan syafaat dari orang2 yg kafir kepadaNya;
+  tidak seorangpun dapat menyelamatkan mereka dari adzabNya
+
+## 2: 49 - 50
 <!-- TODO
 Tafsir Ibnu Katsir 1 a.pdf
-141/152
+147/152
  -->

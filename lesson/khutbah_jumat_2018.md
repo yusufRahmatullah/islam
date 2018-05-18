@@ -1,5 +1,11 @@
 # khutbah_jumat_2018
 
+## 20180519 @UQ: goal of ramadhan 
+* http://wahdah.or.id/manfaat-dan-hikmah-puasa/
+* https://sunnah.com/tirmidhi/8
+* http://www.sunnah.org/history/Scholars/imam_tirmidhi.htm
+* https://sunnah.com/tirmidhi
+
 ## 20180504 @UQ: ramadhan and quran
 * https://almanhaj.or.id/3956-ramadhan-dan-turunnya-al-quran.html
 * http://wahdah.or.id/ramadhan-bulan-diturunkannya-al-quran/

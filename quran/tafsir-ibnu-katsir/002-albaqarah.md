@@ -232,7 +232,21 @@ al-qashash: 56, al-kahfi: 17
   tidak seorangpun dapat menyelamatkan mereka dari adzabNya
 
 ## 2: 49 - 50
+* peringatan tentanng nikmat Allah terhadap bani israil:
+  selamat dari firaun pada hari asyura:
+
+## 2: 51 - 53
+* nikmat Allah terhadap bani israil:
+  * ampunan terhadap penyembahan kepada anak sapi
+  * kitab taurat; al-qashash: 43
+
+## 2: 54
+* taubat bani israil karena menyembah anak sapi
+  * Allah mengirim kabut, dan mereka saling membunuh
+  * yang mati adalah syuhada, yang hidup diterima taubatnya
+
+## 2: 55 - 56
 <!-- TODO
-Tafsir Ibnu Katsir 1 a.pdf
-147/152
+Tafsir Ibnu Katsir 1 b.pdf
+2/150
  -->

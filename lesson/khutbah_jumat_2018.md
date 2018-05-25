@@ -1,6 +1,17 @@
 # khutbah_jumat_2018
 
-## 20180519 @UQ: goal of ramadhan 
+## 20180525 @west-end: the blessing of ramadhan
+* ramadhan is a month of change, hope, and destiny
+* history: mongol conquers islam area
+* ramadhan is a month of quran
+* increase sodaqoh in any form
+* reading, understanding quran make people loves sodaqah more because
+  * realise quran is the biggest gift
+  * more understanding of quran
+* https://rumaysho.com/1197-shalat-tarawih-tiap-4-rakaat-salam.html
+* https://konsultasisyariah.com/27961-hukum-tarawih-4-4-3.html
+
+## 20180518 @UQ: goal of ramadhan 
 * http://wahdah.or.id/manfaat-dan-hikmah-puasa/
 * https://sunnah.com/tirmidhi/8
 * http://www.sunnah.org/history/Scholars/imam_tirmidhi.htm

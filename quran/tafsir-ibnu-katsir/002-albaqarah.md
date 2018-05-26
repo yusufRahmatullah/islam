@@ -246,7 +246,31 @@ al-qashash: 56, al-kahfi: 17
   * yang mati adalah syuhada, yang hidup diterima taubatnya
 
 ## 2: 55 - 56
+* kisah pengikut musa yang meminta melihat Allah dgn kasat mata
+* kemudian mereka disambar pertir/api hingga mati
+* kemudian dihidupkan kembali satu per satu
+
+## 2: 57
+* karunia Allah kepada bani israil
+  * awal
+  * manna: makanan/minuman tanpa usaha
+  * salwa: burung
+
+## 2: 58
+* perintah kepada bani israil untuk memasuki baitul maqdis dgn bersujud dan
+  berkata "bebaskanlah kami dari dosa"
+* lalu orang zalim mengganti perintah
+
+## 2: 60
+* musa memohon air untuk kaummnya,
+  maka muncul 12 mata air untuk tiap2 suku
+* al-a'raaf:: 60
+* nikmat manna dan salwa sebagai makanan bagi bani israil
+* bani israil meminta makanan yang lain: buah dan sayur;
+  sbg bentuk kesombongan dan kufur nikmat
+
+## 2: 61
 <!-- TODO
 Tafsir Ibnu Katsir 1 b.pdf
-2/150
+12/150
  -->

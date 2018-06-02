@@ -270,7 +270,26 @@ al-qashash: 56, al-kahfi: 17
   sbg bentuk kesombongan dan kufur nikmat
 
 ## 2: 61
+* ditimpakan kepada orang yahudi: kehinaan dan nista,
+  karena mereka selalu ingkar terhadap ayat Allah dan membunuh para nabi;
+  berbuat durhaka dan melampau batas
+
+## 2: 62
+* pahala bagi yang mentaatiNya (beriman kepada Allah, hari kemudian dan beramal shaleh)
+
+## 2: 63 - 64
+* al-araaf: 171
+* Allah mengangkat gunung agar mereka bersujud, berjanji mentaati Nya
+* lalu mereka mengingkari perjanjian
+* seandainya Allah tidak menerima taubat mereka, maka mereka merugi
+
+## 2: 65 - 66
+* Allah mengubah orang yg melanggar larangan pada hari sabtu (untuk tidak menangkap ikan)
+  menjadi kera
+* semua itu agar menjadi peringatan dan pelajaran
+
+## 2: 67
 <!-- TODO
 Tafsir Ibnu Katsir 1 b.pdf
-12/150
+21/150
  -->

@@ -22,7 +22,17 @@
   * yg memberi minum dari air tawar dari langit dan dari sumber mata air
 
 ## 77: 29 - 40
-<!-- TODO
-Tafsir Ibnu Katsir 8.4.pdf
-23/120
- -->
+* kabar tentang orang2 kafir yang mendustakan hari kebangkitan, hari pembalasan, surga dan neraka
+  * adzab di neraka
+  * tidak dapat berbicara
+  * tidak diizinkan meminta uzur
+
+## 77: 41 - 50
+* kabar tentang orang2 yang bertaqwa, yang berbuat baik, yang beribadah
+  * berada dalam naungan yang teduh dan mata air
+  * mendapatkan buah2
+  * makan dan minun dgn enak
+* ancaman: kecelakaan bagi orang2 yang mendustakan hari kiamat,
+  yang tidak mau beribadah, yang tidak beriman kepada quran
+  * neraka jahanam
+  * bisa makan dan bersenang2 di dunia (dalam waktu yg pendek)

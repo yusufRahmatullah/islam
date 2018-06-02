@@ -412,8 +412,77 @@ here, dari agama == dari iman
 * yang menyolatkan sampai menguburkannya: pahala 2 qirath (2 gunung uhud)
 * tabiin: orang yang bertemu dgn sahabat
 
-<!--
-next
-193/440
-Kajian Kitab Syarah Kitab Shahih Bukhari Kajian Ke-15 - Usta
- -->
+# ch 36: kekhawatiran seorang muslim jika amalnya hilang tanda disadari
+* ciri2 orang beriman: berhenti dari maksiat; ali-imraan: 135
+* para sahabat sangat khawatir terkena kemunafikan (nifak) kecil
+* kebaikan2 bisa menggugurkan dosa2, dan sebaliknya:
+  keburukan bisa menggugurkan kebaikan
+  * sedekah bisa digugurkan dgn menceritakan/mengungkit-ungkit/menyakiti hati
+* raja' dan khauf
+
+## 48:
+* memaki/mencela seorang muslim adalah kedurhakaan (fasik)
+* membunuhnya adalah kekufuran
+* al-baqarah: 85
+
+## 49: ubadah bin shamit
+* pertikaian menghilangkan keberkahan
+* syaitan hadir dalam kemarahan/pertengkaran
+
+# ch 37: pertanyaan jibril kepada nabi
+* jibril datang untuk mengajarkan kepadamu agamamu
+* ali-imraan: 85:
+  agamanya yang diridhoi Allah adalah islam
+
+## 50:
+* apa arti iman
+* apa arti islam
+* apa arti ikhsan
+* kapankah hari kiamat
+
+## 51:
+* herokius bertanya kepada abu sofyan tentang muhammad,
+  pada hadist ini herokius menyimpulkan jawaban dari abu sofyan
+
+# ch 39: keutamaan orang yang memelihara agamanya
+## 52: nu'man bin basyir
+* telah jelas perkara yang halal dan haram;
+  diantara keduanya adalah yang ragu (syubhat, tidak jelas)
+* barangsiapa menjauhi syubhat maka dia telah membersihkan agamanya
+* barangsiapa hati nya baik, maka baik pula semua tubuhnya;
+  apabila hati itu rusak, maka binasalah seluruh tubuhnya
+* poros agama dgn tiga hadist karena seorang harus beramal soleh (beribadah)
+  * hadist 1: niat yang lurus ... (innamal a'malu bin niat)
+  * hadist 2: telah jelas perkara yang halal dan haram...
+  * hadist 3: barang siapa yang mengadakan perkara baru dalam agama maka tertolak, ...meninggalkan bidah...
+
+# ch 40: menunaukan 1/5 dari harta rampasan perang adalah bagian dari iman
+* 1/5 diserahkan untuk urusan agama (baitul maal)
+
+## 52: abu jamrah
+* nabi memerintahkan 4 perkara
+  * solat
+  * zakat
+  * puasa
+  * 1/5 harta rampasan perang
+* tidak semua yang ada alkoholnya diharamkan
+* yg diharamkan adalah yang memabukkan; tape halal karena tidak memabukkan
+
+# ch 41: amalan tergantung niat dan ingin mendapat pahala
+* al-isra: 85
+
+## 54:
+* setiap perbuatan syariaah tergantung niat dan hisbah (keinginan untuk mendapatkan pahala)
+
+## 55:
+* pentingnya niat karena Allah agar mendaptkan pahala
+
+# ch 42: sabda rasulullah
+* agama adalah nasehat
+
+## 57:
+* lakukanlah yg terbaik bagi Allah, bagi sesama manusia
+
+## 58:
+* berbuat yang terbaik kepada kaum muslim
+* nasehat kepada orang muslim dan non-muslim

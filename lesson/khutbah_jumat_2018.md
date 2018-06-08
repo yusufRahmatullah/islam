@@ -1,5 +1,19 @@
 # khutbah_jumat_2018
 
+## 20180608 @UQ: the fruit of ramadhan
+* volunteering in the way of Islam
+* https://muslim.or.id/17233-menyikapi-perselisihan-dalam-penentuan-awal-dan-akhir-ramadhan.html
+
+## 20180601 @UQ: lailatul qadr, ad dhuhan
+* taubat
+* lailatul qadr: https://quran.com/44/1-4
+* https://muslimah.or.id/10267-muslimah-menyambut-10-hari-terakhir-ramadhan.html
+* https://rumaysho.com/1916-semakin-semangat-ibadah-di-akhir-ramadhan.html
+* https://almanhaj.or.id/3302-doa-jibril-alaihissallam-kepada-tiga-golongan-manusia-agar-mereka-semua-dijauhkan-dari-rahmat-allah.html
+* https://konsultasisyariah.com/19212-doa-malaikat-jibril-menjelang-ramadhan-sms-ramadhan.html
+* http://umar-arrahimy.blogspot.com/2012/07/memiliki-sifat-malu.html
+> Maukah kalian kuberitahukan tentang tiga orang tadi? Adapun yang pertama ia mendekat kepada Allah maka Allah mendekat kepada-Nya, adapun yang kedua ia malu maka Allah pun malu kepadanya, sedangkan yang ketiga ia berpaling maka Allah berpaling darinya. [Sahih Bukhari dan Muslim]
+
 ## 20180525 @west-end: the blessing of ramadhan
 * ramadhan is a month of change, hope, and destiny
 * history: mongol conquers islam area

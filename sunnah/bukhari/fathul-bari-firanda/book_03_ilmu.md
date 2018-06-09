@@ -83,9 +83,40 @@ pembicaraan itu, kemudian jawab pertanyaan
 ## 72: mujahid
 * pohon kurma sbg perumpamaan seorang muslim
 
+# ch 15: ghibtah (ingin seperti seseorang) akan ilmu dan hikmah
+## 73: abdullah bin masud
+* tidak ada hasad, kecuali pada 2 orang
+  * orang yg diberi harta kemudian dipergunakan di jalan Allah
+  * orang yg diberi ilmu kemudian dipergunakan dgn baik dan diajarkan
+* islam berkembang dengan ilmu (ulama) dan harta (donatur)
+
+# ch 16: kisah musa menemui khodir
+* al-kahfi: 66
+
+## 74:
+* nabi musa bertemu nabi khodir
+
+# ch 17:
+## ch 75:
+* doa nabi: ajarkanlah quran kepada ibnu abbas
+* riwayat yang lain: ya Allah ajarkanlah kepadanya agama, tasfir quran
+
+# ch 18: hadist dari ornga yang mendengarnya saat masih kecil, belum baligh, asal sudah bisa membedakan
+## 76:
+* ibnu abbas (saat masih kecil)
+* rasullulah solat tanpa ada sutrah; sutrah tidak wajib
+
+## 77:
+* nabi menyembur muka mahmud (saat umur 5 tahun) dengan air
+* nabi bercanda atau nabi memberi berkah
+
+# ch 19: khuruj (pergi) dalam menuntut ilmu
+## 78:
+* kisah nabi musa bertemu nabi khodir
+
 <!--
 next
 fathul-baari-1-syarah-hadits-bukhari.pdf
-306/440
-Kajian Kitab Syarah Kitab Shahih Bukhari Kajian Ke-20 - Usta
+328/440
+Kajian Kitab Syarah Kitab Shahih Bukhari Kajian Ke-21 - Usta
  -->

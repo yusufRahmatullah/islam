@@ -1,5 +1,9 @@
 # khutbah_jumat_2018
 
+## 20180622 @UQ: sunnah on marriage
+* https://almanhaj.or.id/3276-anjuran-bershalawat-kepada-nabi-shallallahu-alaihi-wa-sallam.html
+* https://konsultasisyariah.com/15174-sedekah-yang-paling-utama.html
+
 ## 20180608 @UQ: the fruit of ramadhan
 * volunteering in the way of Islam
 * https://muslim.or.id/17233-menyikapi-perselisihan-dalam-penentuan-awal-dan-akhir-ramadhan.html

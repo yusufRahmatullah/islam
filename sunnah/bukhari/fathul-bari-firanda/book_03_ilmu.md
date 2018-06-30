@@ -114,9 +114,67 @@ pembicaraan itu, kemudian jawab pertanyaan
 ## 78:
 * kisah nabi musa bertemu nabi khodir
 
+# ch 20: keutamaan tentang orang yg belajar dan mengajar
+## 79: abu musa
+* nabi diutus dengan ilmu
+* 3 golongan
+  * seperti tanah yang menumbuhkan tumbuhan:
+    orang (menyerap ilmu) berilmu yang mengajarkan
+  * tidak begitu menyerap, tetapi meneruskan ilmu
+  * tidak menyerap, tidak mengajarkan
+
+# ch 21: diangkatnya ilmu dan tersebarnya kebodohan
+* tidak sepantasnya orang yang berilmu menyiakan dirinya
+
+## 80:
+* tanda hari kiamat
+  * diangkatnya ilmu
+  * tersebarnya kebodohan
+  * tersebarnya khamr
+  * tersebar zina
+
+## 81: khatadah
+* tanda2 hari kiamat
+  * ilmu semakin sedikit
+  * tersebar kebodohan, zina
+  * wanita jumlah banyak, sedikit laki2;
+    1 laki2 mengurus 50 wanita
+
+# ch 22: keutamaan ilmu
+## 82:
+* talwil mimpi nabi yang menerima susu (= ilmu)
+* kelebihan ilmu diberikan kepada imar bin khattab
+
+# ch 23: fatwa yang dikeluarkan orang yang duduk di atas binatang
+* bolehnya berfatwa dalam konsidi apapun
+
+## 83:
+* fatwa2 dari nabi yang menunggang pada haji wada
+* 10 zulhijah: lempar, menyembelih, gundul, tawwaf
+
+## ch 24: menjawab fatwa dgn isyarat tangan atau kepala
+## 84:
+* isyarat dapat mengganti perkataan
+
+## 85:
+* tanda hari kiamat: banyak pembunuhan
+* nabi memberi isyarat yg menggambarkan terjadinya pembunuhan
+
+## 86:
+* surga dan neraka sudah ada, tetapi belum ada penghuninya
+* adanya
+  * fitnah/ujian kubur
+    * apa pengetahuanmu tentang lelaki ini?
+  * adzab/nikmat kubur
+
+# ch 25: nabi memotivasi utusan abdul qais untuk menjaga iman dan ilmu pengetahuan
+
+# ch 26: bepergian untuk masalah yg sedang dihadapi
+## 88:
+* uqbah berpergian untuk menjawab permasalah yang dihadapi
 <!--
 next
 fathul-baari-1-syarah-hadits-bukhari.pdf
-328/440
-Kajian Kitab Syarah Kitab Shahih Bukhari Kajian Ke-21 - Usta
+348/440
+Kajian Kitab Syarah Kitab Shahih Bukhari Kajian Ke-22 - Usta
  -->

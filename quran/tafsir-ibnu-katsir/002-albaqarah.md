@@ -289,6 +289,7 @@ al-qashash: 56, al-kahfi: 17
 * semua itu agar menjadi peringatan dan pelajaran
 
 ## 2: 67
+
 <!-- TODO
 Tafsir Ibnu Katsir 1 b.pdf
 21/150

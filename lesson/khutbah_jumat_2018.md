@@ -1,5 +1,11 @@
 # khutbah_jumat_2018
 
+## 20180713 @UQ: spreading salam
+* https://almanhaj.or.id/4066-amal-amal-yang-dapat-memasukan-manusia-ke-surga-dengan-selamat.html
+* https://rumaysho.com/182-ucapan-salam-amalan-mulia-yang-ditinggalkan.html
+* https://rumaysho.com/6018-mengucapkan-salam-pada-rumah-kosong.html
+* https://almanhaj.or.id/6262-kisah-taubat-tiga-orang-sahabat-yang-tidak-ikut-dalam-perang-tabk.html
+
 ## 20180622 @UQ: sunnah on marriage
 * https://almanhaj.or.id/3276-anjuran-bershalawat-kepada-nabi-shallallahu-alaihi-wa-sallam.html
 * https://konsultasisyariah.com/15174-sedekah-yang-paling-utama.html

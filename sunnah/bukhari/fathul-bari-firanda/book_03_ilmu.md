@@ -172,9 +172,51 @@ pembicaraan itu, kemudian jawab pertanyaan
 # ch 26: bepergian untuk masalah yg sedang dihadapi
 ## 88:
 * uqbah berpergian untuk menjawab permasalah yang dihadapi
+
+# ch 27: bergantian dalam menuntut ilmu
+## 89: umar
+* saling bergantian-gantian dalam menuntut ilmu
+* umar dan sahabatnya: sehari mengaji, sehari bekerja
+
+# ch 28: marah ketika memberi pelajaran jika sang guru melihat yang dia benci
+## 90:
+* nabi marah ketika imam berlama2 dalam shalat
+
+## 91:
+* seorang bertanya kepada nabin tentang barang temuan
+* nabi marah ketika ditanyakan tentang unta yang hilang,
+  kerena unta bisa survive
+* kambing hilang, diambil, dan diumumkan selama setahun
+* hukum barang temuan
+
+## 92:
+* adab bertanya: tidak menanyakan yang tidak disukai oleh yang ditanya,
+  menimbulkan fitnah, pertentangan
+
+# ch 29: orang yang berlutut di kedua kakinya disisi imam atau orang yang menyampaikan ilmu
+## 93:
+* pertanyaan yg tidak disukai:
+  pertanyaan yg tidak bermanfaat, yang menunjukkan keraguan tentang kenabian
+
+# ch 30: seorang guru yang mengulangi pembicaraan 3x sehingga dipahami
+* nabi mengulangi 3x, saat berkata
+  * hindari perkataan yang keji/dusta
+  * apakah aku sudah menyampaikan
+
+## 94:
+* nabi mengulangi salam 3x, terkadang
+* hukum asal: nabi tidak mengulang2
+
+## 95:
+* tidak berarti selalu diulangi 3x, tapi nabi pernah mengulangi 3x
+* diulangi agar mudah dipahami, dicatat
+
 <!--
 next
 fathul-baari-1-syarah-hadits-bukhari.pdf
-348/440
-Kajian Kitab Syarah Kitab Shahih Bukhari Kajian Ke-22 - Usta
+347/440
+Kajian Kitab Syarah Kitab Shahih Bukhari Kajian Ke-23 - Usta
+
+terjemah fatul bari
+ust abu ihsan, pustaka imam syafii
  -->

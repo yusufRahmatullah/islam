@@ -1,5 +1,8 @@
 # khutbah_jumat_2018
 
+## 20180810 @UQ: first days of Dzulhijah
+* https://almanhaj.or.id/2888-keutamaan-10-hari-pertama-bulan-dzulhijjah-dan-amalan-yang-disyariatkan.html
+
 ## 20180713 @UQ: spreading salam
 * https://almanhaj.or.id/4066-amal-amal-yang-dapat-memasukan-manusia-ke-surga-dengan-selamat.html
 * https://rumaysho.com/182-ucapan-salam-amalan-mulia-yang-ditinggalkan.html

@@ -211,11 +211,55 @@ pembicaraan itu, kemudian jawab pertanyaan
 * tidak berarti selalu diulangi 3x, tapi nabi pernah mengulangi 3x
 * diulangi agar mudah dipahami, dicatat
 
+# ch 31: seorang mengajari budak wanitanya dan keluarganya
+## 97:
+* 3 jenis orang yg mendapat 2 pahala
+  * ahli kitab (yahudi dan nasrani) yang percaya kepada nabi Muhammad
+    * nabi terakhir bani israil adalah nabi Isa
+    * note: orang Yahudi hanya beriman kepada nabi Musa, tidak kepada nabi Isa
+  * budak yang menunauikan hak Allah dan tuannya
+  * orang yang mengajari budak wanita, kemudian dinikahi
+
+# ch 32: seorang imam (penguasa) memberi nasihat kepada wanita
+## 98:
+* nabi mendekati barisan wanita dan memberi nasihat khusus kepada wanita untuk bersedekah
+* sedekah adalah amalan yang bisa menyelamatkan dari neraka jahannam
+
+# ch 33: semangat untuk mencari hadist
+## 99
+* siapakah orang yang paling bahagia mendapat syafaat(pertolongan) mu di hari kiamat
+  * adalah orang yang mengucapkan lailahaillah dgn ikhlas dari hati dan jiwanya
+* syafaat nabi Muhammad yang bertingkat2
+  * syafaat al usma:
+    syafaat dari nabi Muhammad untuk kepayahan di padang mahsyar, kepada semua makhluk,
+    sehingga Allah memulai persidangan
+  * syafaat kepada Abu Thalib sehingga di neraka jahannam yang paling ringan
+  * syafaat masuk surga tanpa hisan
+
+# ch 34: bagaimana ilmu diangkat oleh Allah
+* Umar bin Abdul Aziz: mulai kodifikasi/penulisan hadist pada abad pertama Hijrah
+
+## 100:
+* Allah mencabut ilmu dgn meninggalnya ulama
+
+# ch 35: nabi mengajari wanita di waktu khusus
+
+## 101:
+* anak2 yang meninggal sebelum baligh akan menjadi penghalang dari neraka bagi seorang ibu
+* kajian wanita lebih baik di rumah
+* anak2 kaum muslimin yang meninggal belum baligh adalah di surga
+
+# ch 36: orang yang mendengar sesuatu, kemudian bertanya supaya jelas
+## 103:
+* Al-Insyiqaq (84): 8
+* hisab yang ringan
+* hisab yang detil
+
 <!--
 next
 fathul-baari-1-syarah-hadits-bukhari.pdf
-347/440
-Kajian Kitab Syarah Kitab Shahih Bukhari Kajian Ke-23 - Usta
+372/440
+Kajian Kitab Syarah Kitab Shahih Bukhari Kajian Ke-24 - Usta
 
 terjemah fatul bari
 ust abu ihsan, pustaka imam syafii

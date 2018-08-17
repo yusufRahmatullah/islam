@@ -1,5 +1,10 @@
 # khutbah_jumat_2018
 
+## 20180817 @UQ: priority, sacrify
+* priority for doing Hajj
+* sacrification in the context of Idul Adha
+* patient in doing Hajj
+
 ## 20180810 @UQ: first days of Dzulhijah
 * https://almanhaj.or.id/2888-keutamaan-10-hari-pertama-bulan-dzulhijjah-dan-amalan-yang-disyariatkan.html
 

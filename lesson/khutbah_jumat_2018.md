@@ -1,5 +1,10 @@
 # khutbah_jumat_2018
 
+## 20180824 @UQ: Surah Al-Hajj (last 2 verses)
+* https://quran.com/22/77
+  * O you who have believed, bow and prostrate and worship your Lord and do good - that you may succeed.
+* https://quran.com/22/78
+
 ## 20180817 @UQ: priority, sacrify
 * priority for doing Hajj
 * sacrification in the context of Idul Adha

@@ -83,9 +83,236 @@ pembicaraan itu, kemudian jawab pertanyaan
 ## 72: mujahid
 * pohon kurma sbg perumpamaan seorang muslim
 
+# ch 15: ghibtah (ingin seperti seseorang) akan ilmu dan hikmah
+## 73: abdullah bin masud
+* tidak ada hasad, kecuali pada 2 orang
+  * orang yg diberi harta kemudian dipergunakan di jalan Allah
+  * orang yg diberi ilmu kemudian dipergunakan dgn baik dan diajarkan
+* islam berkembang dengan ilmu (ulama) dan harta (donatur)
+
+# ch 16: kisah musa menemui khodir
+* al-kahfi: 66
+
+## 74:
+* nabi musa bertemu nabi khodir
+
+# ch 17:
+## ch 75:
+* doa nabi: ajarkanlah quran kepada ibnu abbas
+* riwayat yang lain: ya Allah ajarkanlah kepadanya agama, tasfir quran
+
+# ch 18: hadist dari ornga yang mendengarnya saat masih kecil, belum baligh, asal sudah bisa membedakan
+## 76:
+* ibnu abbas (saat masih kecil)
+* rasullulah solat tanpa ada sutrah; sutrah tidak wajib
+
+## 77:
+* nabi menyembur muka mahmud (saat umur 5 tahun) dengan air
+* nabi bercanda atau nabi memberi berkah
+
+# ch 19: khuruj (pergi) dalam menuntut ilmu
+## 78:
+* kisah nabi musa bertemu nabi khodir
+
+# ch 20: keutamaan tentang orang yg belajar dan mengajar
+## 79: abu musa
+* nabi diutus dengan ilmu
+* 3 golongan
+  * seperti tanah yang menumbuhkan tumbuhan:
+    orang (menyerap ilmu) berilmu yang mengajarkan
+  * tidak begitu menyerap, tetapi meneruskan ilmu
+  * tidak menyerap, tidak mengajarkan
+
+# ch 21: diangkatnya ilmu dan tersebarnya kebodohan
+* tidak sepantasnya orang yang berilmu menyiakan dirinya
+
+## 80:
+* tanda hari kiamat
+  * diangkatnya ilmu
+  * tersebarnya kebodohan
+  * tersebarnya khamr
+  * tersebar zina
+
+## 81: khatadah
+* tanda2 hari kiamat
+  * ilmu semakin sedikit
+  * tersebar kebodohan, zina
+  * wanita jumlah banyak, sedikit laki2;
+    1 laki2 mengurus 50 wanita
+
+# ch 22: keutamaan ilmu
+## 82:
+* talwil mimpi nabi yang menerima susu (= ilmu)
+* kelebihan ilmu diberikan kepada imar bin khattab
+
+# ch 23: fatwa yang dikeluarkan orang yang duduk di atas binatang
+* bolehnya berfatwa dalam konsidi apapun
+
+## 83:
+* fatwa2 dari nabi yang menunggang pada haji wada
+* 10 zulhijah: lempar, menyembelih, gundul, tawwaf
+
+## ch 24: menjawab fatwa dgn isyarat tangan atau kepala
+## 84:
+* isyarat dapat mengganti perkataan
+
+## 85:
+* tanda hari kiamat: banyak pembunuhan
+* nabi memberi isyarat yg menggambarkan terjadinya pembunuhan
+
+## 86:
+* surga dan neraka sudah ada, tetapi belum ada penghuninya
+* adanya
+  * fitnah/ujian kubur
+    * apa pengetahuanmu tentang lelaki ini?
+  * adzab/nikmat kubur
+
+# ch 25: nabi memotivasi utusan abdul qais untuk menjaga iman dan ilmu pengetahuan
+
+# ch 26: bepergian untuk masalah yg sedang dihadapi
+## 88:
+* uqbah berpergian untuk menjawab permasalah yang dihadapi
+
+# ch 27: bergantian dalam menuntut ilmu
+## 89: umar
+* saling bergantian-gantian dalam menuntut ilmu
+* umar dan sahabatnya: sehari mengaji, sehari bekerja
+
+# ch 28: marah ketika memberi pelajaran jika sang guru melihat yang dia benci
+## 90:
+* nabi marah ketika imam berlama2 dalam shalat
+
+## 91:
+* seorang bertanya kepada nabin tentang barang temuan
+* nabi marah ketika ditanyakan tentang unta yang hilang,
+  kerena unta bisa survive
+* kambing hilang, diambil, dan diumumkan selama setahun
+* hukum barang temuan
+
+## 92:
+* adab bertanya: tidak menanyakan yang tidak disukai oleh yang ditanya,
+  menimbulkan fitnah, pertentangan
+
+# ch 29: orang yang berlutut di kedua kakinya disisi imam atau orang yang menyampaikan ilmu
+## 93:
+* pertanyaan yg tidak disukai:
+  pertanyaan yg tidak bermanfaat, yang menunjukkan keraguan tentang kenabian
+
+# ch 30: seorang guru yang mengulangi pembicaraan 3x sehingga dipahami
+* nabi mengulangi 3x, saat berkata
+  * hindari perkataan yang keji/dusta
+  * apakah aku sudah menyampaikan
+
+## 94:
+* nabi mengulangi salam 3x, terkadang
+* hukum asal: nabi tidak mengulang2
+
+## 95:
+* tidak berarti selalu diulangi 3x, tapi nabi pernah mengulangi 3x
+* diulangi agar mudah dipahami, dicatat
+
+# ch 31: seorang mengajari budak wanitanya dan keluarganya
+## 97:
+* 3 jenis orang yg mendapat 2 pahala
+  * ahli kitab (yahudi dan nasrani) yang percaya kepada nabi Muhammad
+    * nabi terakhir bani israil adalah nabi Isa
+    * note: orang Yahudi hanya beriman kepada nabi Musa, tidak kepada nabi Isa
+  * budak yang menunauikan hak Allah dan tuannya
+  * orang yang mengajari budak wanita, kemudian dinikahi
+
+# ch 32: seorang imam (penguasa) memberi nasihat kepada wanita
+## 98:
+* nabi mendekati barisan wanita dan memberi nasihat khusus kepada wanita untuk bersedekah
+* sedekah adalah amalan yang bisa menyelamatkan dari neraka jahannam
+
+# ch 33: semangat untuk mencari hadist
+## 99
+* siapakah orang yang paling bahagia mendapat syafaat(pertolongan) mu di hari kiamat
+  * adalah orang yang mengucapkan lailahaillah dgn ikhlas dari hati dan jiwanya
+* syafaat nabi Muhammad yang bertingkat2
+  * syafaat al usma:
+    syafaat dari nabi Muhammad untuk kepayahan di padang mahsyar, kepada semua makhluk,
+    sehingga Allah memulai persidangan
+  * syafaat kepada Abu Thalib sehingga di neraka jahannam yang paling ringan
+  * syafaat masuk surga tanpa hisan
+
+# ch 34: bagaimana ilmu diangkat oleh Allah
+* Umar bin Abdul Aziz: mulai kodifikasi/penulisan hadist pada abad pertama Hijrah
+
+## 100:
+* Allah mencabut ilmu dgn meninggalnya ulama
+
+# ch 35: nabi mengajari wanita di waktu khusus
+
+## 101:
+* anak2 yang meninggal sebelum baligh akan menjadi penghalang dari neraka bagi seorang ibu
+* kajian wanita lebih baik di rumah
+* anak2 kaum muslimin yang meninggal belum baligh adalah di surga
+
+# ch 36: orang yang mendengar sesuatu, kemudian bertanya supaya jelas
+## 103:
+* Al-Insyiqaq (84): 8
+* hisab yang ringan
+* hisab yang detil
+
+# ch 37: menyampaikan ilmu pada yang tidak hadir
+## 104:
+* Allah telah mengharamkan kota Makkah
+  * tidak halal bagi orang yg beriman untuk menumpahkan darah di Makkah
+* Allah hanya memberikan izin kepada Nabi (saat penakhlukan kota Makkah) dan hanya pada siang penakhlukkan kota Makkah
+
+## 105:
+* darah, harta dan harga diri kaum muslimin adalah haram (tidak boleh ditumpahkan) bagi kalian
+
+# ch 38: dosa orang yang berdusta atas nama nabi
+* tingkatan hadist
+  * shahih (rowinya tsiqah)
+    * (1) shahih karena zatnya
+    * (2) shahih karena banyak yang meriwayatkan
+  * hasan
+    * (3) hasan karena zatnya
+    * (4) hasan karena banyak yang meriwayatkan
+  * dho'iif
+    * (5) dho'iif ringan
+    * (6) dho'iif parah
+  * (7) palsu
+
+* derajat rowi
+  * tsiqoh
+  * shoduuq
+  * dho'iif
+
+## 106:
+* barangsiapa berdosa atas nama nabi maka masuklah ia ke neraka jahannam
+  * walaupun berniat baik
+  * memalsukan hadist (untuk merusak islam)
+
+## 107:
+* barangsiapa berdosa atas nama nabi, maka disiapkan tempatnya di neraka
+  * maka Zubair tidak banyak meriwayatkan hadist
+
+## 108:
+* Anas: telah menghalangiku untuk meriwaykan hadist, karena
+  barangsiapa berdosa atas nama nabi, maka disiapkan tempatnya di neraka
+* orang yg berdosa atas nabi adalah dosa besar, tapi tidak sampai kafir,
+  sehingga lama di neraka, tapi tidak kekal
+
+## 109:
+* barangsiapa berdosa atas nama nabi, maka disiapkan tempatnya di neraka
+* boleh meriwatkan dengan makna, asal benar maknanya, tidah harus sama persis dgn yang diucapkan
+
+## 110:
+* namailah dgn namaku (nama nabi), tetapi jangan berkunyah dengan Abu Qasim
+* barangsiapa meliha nabi dalam mimpi, maka ia melihatku
+  * karena syetan tidak bisa menyerupaiku
+
+# ch 39: penulisan ilmu
 <!--
 next
 fathul-baari-1-syarah-hadits-bukhari.pdf
-306/440
-Kajian Kitab Syarah Kitab Shahih Bukhari Kajian Ke-20 - Usta
+384/440
+Kajian Kitab Syarah Kitab Shahih Bukhari Kajian Ke-25 - Usta
+
+terjemah fatul bari
+ust abu ihsan, pustaka imam syafii
  -->

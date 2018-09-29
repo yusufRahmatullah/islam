@@ -255,11 +255,63 @@ pembicaraan itu, kemudian jawab pertanyaan
 * hisab yang ringan
 * hisab yang detil
 
+# ch 37: menyampaikan ilmu pada yang tidak hadir
+## 104:
+* Allah telah mengharamkan kota Makkah
+  * tidak halal bagi orang yg beriman untuk menumpahkan darah di Makkah
+* Allah hanya memberikan izin kepada Nabi (saat penakhlukan kota Makkah) dan hanya pada siang penakhlukkan kota Makkah
+
+## 105:
+* darah, harta dan harga diri kaum muslimin adalah haram (tidak boleh ditumpahkan) bagi kalian
+
+# ch 38: dosa orang yang berdusta atas nama nabi
+* tingkatan hadist
+  * shahih (rowinya tsiqah)
+    * (1) shahih karena zatnya
+    * (2) shahih karena banyak yang meriwayatkan
+  * hasan
+    * (3) hasan karena zatnya
+    * (4) hasan karena banyak yang meriwayatkan
+  * dho'iif
+    * (5) dho'iif ringan
+    * (6) dho'iif parah
+  * (7) palsu
+
+* derajat rowi
+  * tsiqoh
+  * shoduuq
+  * dho'iif
+
+## 106:
+* barangsiapa berdosa atas nama nabi maka masuklah ia ke neraka jahannam
+  * walaupun berniat baik
+  * memalsukan hadist (untuk merusak islam)
+
+## 107:
+* barangsiapa berdosa atas nama nabi, maka disiapkan tempatnya di neraka
+  * maka Zubair tidak banyak meriwayatkan hadist
+
+## 108:
+* Anas: telah menghalangiku untuk meriwaykan hadist, karena
+  barangsiapa berdosa atas nama nabi, maka disiapkan tempatnya di neraka
+* orang yg berdosa atas nabi adalah dosa besar, tapi tidak sampai kafir,
+  sehingga lama di neraka, tapi tidak kekal
+
+## 109:
+* barangsiapa berdosa atas nama nabi, maka disiapkan tempatnya di neraka
+* boleh meriwatkan dengan makna, asal benar maknanya, tidah harus sama persis dgn yang diucapkan
+
+## 110:
+* namailah dgn namaku (nama nabi), tetapi jangan berkunyah dengan Abu Qasim
+* barangsiapa meliha nabi dalam mimpi, maka ia melihatku
+  * karena syetan tidak bisa menyerupaiku
+
+# ch 39: penulisan ilmu
 <!--
 next
 fathul-baari-1-syarah-hadits-bukhari.pdf
-372/440
-Kajian Kitab Syarah Kitab Shahih Bukhari Kajian Ke-24 - Usta
+384/440
+Kajian Kitab Syarah Kitab Shahih Bukhari Kajian Ke-25 - Usta
 
 terjemah fatul bari
 ust abu ihsan, pustaka imam syafii
